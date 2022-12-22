@@ -1,0 +1,48 @@
+---
+title: "Discrimination and Unification - Part 4 of 4 ~ Shinzen Young"
+
+---
+=== "Timestamps"
+    | Timestamp | Text Segment |
+    | ---------- | ----  |
+    | [00:00:00](https://www.youtube.com/watch?v=IAudwp77vf8&t=0) |  What is the difference between the I and the Thou? |
+    | [00:00:10](https://www.youtube.com/watch?v=IAudwp77vf8&t=10) |  You're separate but not separate, never completely separate, because neither the I nor the Thou, |
+    | [00:00:17](https://www.youtube.com/watch?v=IAudwp77vf8&t=17) |  what you used to call the It, the world, the other pieces of matter, other people, and so forth, |
+    | [00:00:26](https://www.youtube.com/watch?v=IAudwp77vf8&t=26) |  you see both the I and the Thou coming from and returning to the same womb of zero moment by moment. |
+    | [00:00:36](https://www.youtube.com/watch?v=IAudwp77vf8&t=36) |  And how? Zero breaks apart and vibrates out and in and ferments space into existence. |
+    | [00:00:48](https://www.youtube.com/watch?v=IAudwp77vf8&t=48) |  And then that space further vibrates and begins to think and feel and either thinks, |
+    | [00:00:59](https://www.youtube.com/watch?v=IAudwp77vf8&t=59) |  I am a thing and is vulnerable, or thinks, I just came from the source and is in some sense invulnerable. |
+    | [00:01:15](https://www.youtube.com/watch?v=IAudwp77vf8&t=75) |  The former case is what usually happens. The latter case is something called enlightenment. |
+    | [00:01:22](https://www.youtube.com/watch?v=IAudwp77vf8&t=82) |  What we're talking about here is empowering unification. |
+    | [00:01:28](https://www.youtube.com/watch?v=IAudwp77vf8&t=88) |  However, the way I like to look upon the path, it's based on contrasts, empowering contrasts. |
+    | [00:01:36](https://www.youtube.com/watch?v=IAudwp77vf8&t=96) |  One of the contrasts is between oneness, that is a healthy oneness, and discrimination, which is a healthy discrimination. |
+    | [00:01:51](https://www.youtube.com/watch?v=IAudwp77vf8&t=111) |  And we don't want to get one-sided on one side or the other. |
+    | [00:01:56](https://www.youtube.com/watch?v=IAudwp77vf8&t=116) |  So the kind of oneness that I'm describing, I would say, is desirable for humans. |
+    | [00:02:03](https://www.youtube.com/watch?v=IAudwp77vf8&t=123) |  However, it's also desirable to make empowering discriminations and to go back and forth. |
+    | [00:02:12](https://www.youtube.com/watch?v=IAudwp77vf8&t=132) |  It's a dialectical process. Dialectical means back and forth. |
+    | [00:02:16](https://www.youtube.com/watch?v=IAudwp77vf8&t=136) |  So you experience oneness, but then you're not averse to making distinctions again. |
+    | [00:02:22](https://www.youtube.com/watch?v=IAudwp77vf8&t=142) |  A person that says, oh, I only want to be in flow and emptiness, and I'm unwilling to track, feel, image, talk as objects. |
+    | [00:02:32](https://www.youtube.com/watch?v=IAudwp77vf8&t=152) |  I'm unwilling to track touch, sight, and sound as an object. Oh, that will mire me in self and materiality. |
+    | [00:02:40](https://www.youtube.com/watch?v=IAudwp77vf8&t=160) |  No. Tracking in those ways, that's making empowering distinctions. |
+    | [00:02:48](https://www.youtube.com/watch?v=IAudwp77vf8&t=168) |  That's making distinctions that allow you to untangle and be free. |
+    | [00:02:53](https://www.youtube.com/watch?v=IAudwp77vf8&t=173) |  That's making distinctions that allow you to go from multiplicative overwhelm when things get tangled to additive manageability when things get teased apart. |
+    | [00:03:10](https://www.youtube.com/watch?v=IAudwp77vf8&t=190) |  I like to think that there's this list of categories that contain all and only the most important empowering healthy distinctions |
+    | [00:03:23](https://www.youtube.com/watch?v=IAudwp77vf8&t=203) |  that we need to make for psychological personal growth and for spiritual transpersonal growth. |
+    | [00:03:31](https://www.youtube.com/watch?v=IAudwp77vf8&t=211) |  We can distinguish the somatic versus visual versus auditory, obviously. |
+    | [00:03:42](https://www.youtube.com/watch?v=IAudwp77vf8&t=222) |  Within those, we can distinguish the more subjective somatic visual and auditory feel, image, talk, |
+    | [00:03:50](https://www.youtube.com/watch?v=IAudwp77vf8&t=230) |  the more objective somatic visual and auditory touch, sight, sound. |
+    | [00:03:54](https://www.youtube.com/watch?v=IAudwp77vf8&t=234) |  Then, corresponding to those six ordinary sensory experiences, we have to be willing to put taste and smell into touch. |
+    | [00:04:03](https://www.youtube.com/watch?v=IAudwp77vf8&t=243) |  That sort of covers ordinary sensory experiences. |
+    | [00:04:06](https://www.youtube.com/watch?v=IAudwp77vf8&t=246) |  Then there's some special restful states, six, corresponding to the six ordinary active states. |
+    | [00:04:15](https://www.youtube.com/watch?v=IAudwp77vf8&t=255) |  Those are very useful to discriminate because they lead to very pleasant, tranquil experiences. |
+    | [00:04:23](https://www.youtube.com/watch?v=IAudwp77vf8&t=263) |  Those are discriminations that I think are very healthy to be able to tease those things out, |
+    | [00:04:35](https://www.youtube.com/watch?v=IAudwp77vf8&t=275) |  to be able to break the thinking process into visual versus auditory so thought becomes tangible and spatial, |
+    | [00:04:42](https://www.youtube.com/watch?v=IAudwp77vf8&t=282) |  and therefore trackable, and therefore tractable. |
+    | [00:04:47](https://www.youtube.com/watch?v=IAudwp77vf8&t=287) |  If you can keep track of it, or you can train better still, more accurately still, you train the depths of your being |
+    | [00:04:55](https://www.youtube.com/watch?v=IAudwp77vf8&t=295) |  to automatically keep track of these kinds of distinctions, then they become tractable, |
+    | [00:05:00](https://www.youtube.com/watch?v=IAudwp77vf8&t=300) |  meaning a source of fulfillment and not a source of suffering. |
+    | [00:05:06](https://www.youtube.com/watch?v=IAudwp77vf8&t=306) |  Empowering healthy distinctions, healthy oneness, back and forth, back and forth, over and over again, |
+    | [00:05:14](https://www.youtube.com/watch?v=IAudwp77vf8&t=314) |  marks the path to psychospiritual super adulthood. |
+
+=== "Text"
+     What is the difference between the I and the Thou? You're separate but not separate, never completely separate, because neither the I nor the Thou, what you used to call the It, the world, the other pieces of matter, other people, and so forth, you see both the I and the Thou coming from and returning to the same womb of zero moment by moment. And how? Zero breaks apart and vibrates out and in and ferments space into existence. And then that space further vibrates and begins to think and feel and either thinks, I am a thing and is vulnerable, or thinks, I just came from the source and is in some sense invulnerable. The former case is what usually happens. The latter case is something called enlightenment. What we're talking about here is empowering unification. However, the way I like to look upon the path, it's based on contrasts, empowering contrasts. One of the contrasts is between oneness, that is a healthy oneness, and discrimination, which is a healthy discrimination. And we don't want to get one-sided on one side or the other. So the kind of oneness that I'm describing, I would say, is desirable for humans. However, it's also desirable to make empowering discriminations and to go back and forth. It's a dialectical process. Dialectical means back and forth. So you experience oneness, but then you're not averse to making distinctions again. A person that says, oh, I only want to be in flow and emptiness, and I'm unwilling to track, feel, image, talk as objects. I'm unwilling to track touch, sight, and sound as an object. Oh, that will mire me in self and materiality. No. Tracking in those ways, that's making empowering distinctions. That's making distinctions that allow you to untangle and be free. That's making distinctions that allow you to go from multiplicative overwhelm when things get tangled to additive manageability when things get teased apart. I like to think that there's this list of categories that contain all and only the most important empowering healthy distinctions that we need to make for psychological personal growth and for spiritual transpersonal growth. We can distinguish the somatic versus visual versus auditory, obviously. Within those, we can distinguish the more subjective somatic visual and auditory feel, image, talk, the more objective somatic visual and auditory touch, sight, sound. Then, corresponding to those six ordinary sensory experiences, we have to be willing to put taste and smell into touch. That sort of covers ordinary sensory experiences. Then there's some special restful states, six, corresponding to the six ordinary active states. Those are very useful to discriminate because they lead to very pleasant, tranquil experiences. Those are discriminations that I think are very healthy to be able to tease those things out, to be able to break the thinking process into visual versus auditory so thought becomes tangible and spatial, and therefore trackable, and therefore tractable. If you can keep track of it, or you can train better still, more accurately still, you train the depths of your being to automatically keep track of these kinds of distinctions, then they become tractable, meaning a source of fulfillment and not a source of suffering. Empowering healthy distinctions, healthy oneness, back and forth, back and forth, over and over again, marks the path to psychospiritual super adulthood.

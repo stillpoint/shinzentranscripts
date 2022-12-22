@@ -1,0 +1,45 @@
+---
+title: "Evoking and Working Through Challenging Material ~ Shinzen Young"
+
+---
+=== "Timestamps"
+    | Timestamp | Text Segment |
+    | ---------- | ----  |
+    | [00:00:00](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=0) |  Within the sort of standard methodology, it's what you say. If stuff percolates up spontaneously, |
+    | [00:00:14](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=14) |  that is negatives from memories and so forth, it can only come up as some combination of field |
+    | [00:00:25](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=25) |  image talk. So you simply apply the focus in technique to it. You untangle the strands, |
+    | [00:00:33](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=33) |  you open up to them, you give it permission to last as long or as short as it wants. And as you |
+    | [00:00:39](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=39) |  say, if that's unfinished business, then this finishes the business, or at least is part of |
+    | [00:00:46](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=46) |  an ongoing process that maybe a year later some more has to percolate up. But you're fostering |
+    | [00:00:53](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=53) |  the finishing of the business. Or another way to put it is that you're letting the ghosts out of |
+    | [00:01:01](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=61) |  the cellar and they dissipate and are gone. So typically that's how one deals with negatives. |
+    | [00:01:14](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=74) |  Now when you say focus on negative, okay, that could have a different meaning because focus on |
+    | [00:01:21](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=81) |  positive means intentionally hold and radiate the positive. So no, there's no technique to |
+    | [00:01:31](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=91) |  intentionally hold and radiate the negatives in my system. So in that sense, yes, I apologize, |
+    | [00:01:38](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=98) |  it's asymmetrical. There is something, it's not really a focus on negative because focus on |
+    | [00:01:46](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=106) |  positive here, attempting to nurture positive content, and there's no way we're going to |
+    | [00:01:50](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=110) |  nurture negative content. However, there is something that people frequently ask about, |
+    | [00:01:56](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=116) |  which is, well, do I have to wait for it to spontaneously arise? Can I evoke something |
+    | [00:02:03](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=123) |  that I know is problematic and then observe it? Then apply the deconstruction practice to it? |
+    | [00:02:13](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=133) |  The answer is yes, subject to a couple of constraints. The first constraint is I would |
+    | [00:02:21](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=141) |  not make that the centerpiece of mindfulness practice because then you're doing psychotherapy, |
+    | [00:02:27](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=147) |  you're not doing mindfulness. But it's okay to do that on occasion. The second is to sort of |
+    | [00:02:35](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=155) |  know how to do it so as to optimize the mindfulness cathartic component. By that I mean, |
+    | [00:02:45](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=165) |  if you consider, well, you've heard the expression like, what are some of the expressions? Like, |
+    | [00:02:56](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=176) |  okay, rattle your cage when it's a negative or ring your bell when it's a positive. What does |
+    | [00:03:06](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=186) |  that mean? If you look at the act, if the bell stands for the samskaras, the stored materials, |
+    | [00:03:15](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=195) |  so you can with intention strike that bell by bringing up some feel, image, talk, typically a |
+    | [00:03:23](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=203) |  negative, an issue. So you strike the body-mind bell intentionally, but then it's like hands-off, |
+    | [00:03:33](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=213) |  and you let it resonate and you observe. You don't strike it again until it completely dies down. |
+    | [00:03:40](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=220) |  And then you strike it again. At some point, you may find this happens. And that could be |
+    | [00:03:50](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=230) |  actually at the very beginning, in which case you don't beat that dead horse trying to evoke |
+    | [00:03:58](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=238) |  that thing. The idea is it needs to be something that will resonate on its own readily after |
+    | [00:04:05](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=245) |  evoking, freeing up all your energy to now apply the technique to it. So you can't be constantly |
+    | [00:04:11](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=251) |  trying to beat it, like strike it into existence and deconstruct it. But if you find a bell that |
+    | [00:04:19](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=259) |  resonates, so you strike it and now, however subtly you can still detect it as it damps, |
+    | [00:04:37](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=277) |  and then strike it again. If at some point you can't evoke it anymore, you're done for that |
+    | [00:04:45](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=285) |  session. So I call that evoking. And it's not a focus on negative, but it's a little related to |
+    | [00:04:51](https://www.youtube.com/watch?v=dG1_nyUxj2w&t=291) |  what you brought up. |
+
+=== "Text"
+     Within the sort of standard methodology, it's what you say. If stuff percolates up spontaneously, that is negatives from memories and so forth, it can only come up as some combination of field image talk. So you simply apply the focus in technique to it. You untangle the strands, you open up to them, you give it permission to last as long or as short as it wants. And as you say, if that's unfinished business, then this finishes the business, or at least is part of an ongoing process that maybe a year later some more has to percolate up. But you're fostering the finishing of the business. Or another way to put it is that you're letting the ghosts out of the cellar and they dissipate and are gone. So typically that's how one deals with negatives. Now when you say focus on negative, okay, that could have a different meaning because focus on positive means intentionally hold and radiate the positive. So no, there's no technique to intentionally hold and radiate the negatives in my system. So in that sense, yes, I apologize, it's asymmetrical. There is something, it's not really a focus on negative because focus on positive here, attempting to nurture positive content, and there's no way we're going to nurture negative content. However, there is something that people frequently ask about, which is, well, do I have to wait for it to spontaneously arise? Can I evoke something that I know is problematic and then observe it? Then apply the deconstruction practice to it? The answer is yes, subject to a couple of constraints. The first constraint is I would not make that the centerpiece of mindfulness practice because then you're doing psychotherapy, you're not doing mindfulness. But it's okay to do that on occasion. The second is to sort of know how to do it so as to optimize the mindfulness cathartic component. By that I mean, if you consider, well, you've heard the expression like, what are some of the expressions? Like, okay, rattle your cage when it's a negative or ring your bell when it's a positive. What does that mean? If you look at the act, if the bell stands for the samskaras, the stored materials, so you can with intention strike that bell by bringing up some feel, image, talk, typically a negative, an issue. So you strike the body-mind bell intentionally, but then it's like hands-off, and you let it resonate and you observe. You don't strike it again until it completely dies down. And then you strike it again. At some point, you may find this happens. And that could be actually at the very beginning, in which case you don't beat that dead horse trying to evoke that thing. The idea is it needs to be something that will resonate on its own readily after evoking, freeing up all your energy to now apply the technique to it. So you can't be constantly trying to beat it, like strike it into existence and deconstruct it. But if you find a bell that resonates, so you strike it and now, however subtly you can still detect it as it damps, and then strike it again. If at some point you can't evoke it anymore, you're done for that session. So I call that evoking. And it's not a focus on negative, but it's a little related to what you brought up.

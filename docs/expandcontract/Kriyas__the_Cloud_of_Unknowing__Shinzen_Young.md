@@ -1,0 +1,71 @@
+---
+title: "Kriyas & the Cloud of Unknowing ~ Shinzen Young"
+
+---
+=== "Timestamps"
+    | Timestamp | Text Segment |
+    | ---------- | ----  |
+    | [00:00:00](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=0) |  What is the most fascinating thing about meditation? |
+    | [00:00:06](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=6) |  One of the fascinating things about meditation for me is its universality. |
+    | [00:00:14](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=14) |  If you think of the enormous diversity of cultures and doctrines and philosophies around the world, |
+    | [00:00:24](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=24) |  it's rather extraordinary that when it comes down to the kinds of experiences that people have when they meditate, |
+    | [00:00:34](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=34) |  it's more or less the same all around the world. |
+    | [00:00:39](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=39) |  Certain basic things happen that seem to be quite independent of cultures, |
+    | [00:00:46](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=46) |  and even of the underlying doctrines and theologies and worldview of the practitioners. |
+    | [00:00:56](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=56) |  An interesting case of this is with regards to the phenomenon of kriyas. |
+    | [00:01:08](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=68) |  Kriya is something that is well known in the meditative systems that come from India or are influenced by India. |
+    | [00:01:21](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=81) |  It's spontaneous movements that can be at one end very mild and subtle, |
+    | [00:01:29](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=89) |  and at the other end bizarre and intense, and anything in between. |
+    | [00:01:36](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=96) |  It's spontaneous movements that are looked upon as a releasing process. |
+    | [00:01:43](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=103) |  There's a fascinating book that was written maybe in the 15th century, something like that. |
+    | [00:01:52](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=112) |  It was written in English, but that would mean it was written in Middle English, Chaucerian English, pre-Shakespeare English. |
+    | [00:02:02](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=122) |  The book is called The Cloud of Unknowing, and you can read it in a modern English translation. |
+    | [00:02:10](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=130) |  There have been many made. I like the one that was done by my friend, Father William Johnston, |
+    | [00:02:18](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=138) |  who is a Catholic Jesuit priest and very long-term practitioner of Zen meditation. |
+    | [00:02:28](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=148) |  He's got a nice translation, and because he has experience, he is qualified, I think, to translate these texts. |
+    | [00:02:36](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=156) |  There's this fascinating book. It's anonymous. It's small. |
+    | [00:02:41](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=161) |  It was probably written back in the 1400s or 1500s, called The Cloud of Unknowing. |
+    | [00:02:49](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=169) |  What's interesting is it's used by the Catholic Church, but it's also used by some Protestants, |
+    | [00:02:55](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=175) |  at least the Anglican community, what we would call Episcopalian in the United States, certainly makes use of it. |
+    | [00:03:05](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=185) |  In fact, it's a kind of English spiritual classic. |
+    | [00:03:09](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=189) |  When I was first doing meditation in Japan, when I was being trained in the early 70s at Mount Koya, |
+    | [00:03:17](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=197) |  and I was undergoing a hundred-day isolation practice, I kept that book by me, actually, as a kind of inspiration, |
+    | [00:03:29](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=209) |  even though I was doing Buddhist practice, because it seemed very germane to what I was experiencing. |
+    | [00:03:35](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=215) |  You might wonder what the somewhat strange word, unknowing, means. |
+    | [00:03:40](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=220) |  Well, unknowing is the process of having equanimity with the need to know, |
+    | [00:03:48](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=228) |  letting go of the need to know so that you can know in a new way, an intuitive spiritual way. |
+    | [00:03:59](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=239) |  So, very suggestive, interesting title. |
+    | [00:04:02](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=242) |  St. Thomas Aquinas, who is the standard authority on philosophy in the Catholic Church, said, |
+    | [00:04:11](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=251) |  I hope I'm not chopping the Latin too bad, |
+    | [00:04:14](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=254) |  Deum tamquam per ignorantiam cogniscimus. |
+    | [00:04:20](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=260) |  We know God directly through a very special kind of not knowing. |
+    | [00:04:27](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=267) |  The Cloud of Unknowing is a sort of step-by-step manual for how to do this. |
+    | [00:04:35](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=275) |  In there, there is a clear description of Kriyas. |
+    | [00:04:41](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=281) |  Now, mind you, we're talking something like 15th century, we're talking Western culture, |
+    | [00:04:49](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=289) |  we're talking a completely Christian environment, |
+    | [00:04:53](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=293) |  we're talking about people that would have known little, if anything, about India, |
+    | [00:04:58](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=298) |  certainly would not be at all familiar with any Indic concepts regarding spiritual practice. |
+    | [00:05:07](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=307) |  But that book, The Cloud of Unknowing, has a clear description of the phenomenon of Kriyas. |
+    | [00:05:15](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=315) |  And I just thought that's like fascinating. |
+    | [00:05:18](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=318) |  Clearly, the person that wrote the book was what is called a spiritual director. |
+    | [00:05:24](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=324) |  That means he was in charge of guiding people in their meditation practice, |
+    | [00:05:28](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=328) |  and he saw this phenomenon happening. |
+    | [00:05:31](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=331) |  What's interesting is that he points out that people have a tendency to think that |
+    | [00:05:41](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=341) |  these strange movements and idiosyncratic sort of gestures and whimsical forms of behavior and whatever |
+    | [00:05:53](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=353) |  are a sign of spiritual progress. |
+    | [00:05:55](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=355) |  It's like, apparently in that day, people thought that this proves that the Spirit is within you or something like that. |
+    | [00:06:04](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=364) |  The author of The Cloud of Unknowing was totally contemptuous of that point of view |
+    | [00:06:11](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=371) |  and pointed out essentially what I mentioned in my first segment about the Kriyas, |
+    | [00:06:19](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=379) |  which is that the name of the game is to neither desire them nor suppress them. |
+    | [00:06:26](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=386) |  You just have to sort of let them do their thing. |
+    | [00:06:30](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=390) |  It's just fascinating to me how there's a kind of universality across time and space |
+    | [00:06:40](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=400) |  with regards to the types of phenomena that come up when we practice |
+    | [00:06:46](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=406) |  and also with regards to how mature or immature people are about these types of phenomena. |
+    | [00:06:57](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=417) |  They tend to be either mature or immature in similar ways. |
+    | [00:07:01](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=421) |  They tend to have effective ways of dealing with things or non-effective ways of dealing with things |
+    | [00:07:09](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=429) |  in more or less similar ways and so forth. |
+    | [00:07:13](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=433) |  So anyway, I think if you're on the spiritual path, you might enjoy reading that book, |
+    | [00:07:21](https://www.youtube.com/watch?v=aTaDZqB_RY8&t=441) |  The Cloud of Unknowing. |
+
+=== "Text"
+     What is the most fascinating thing about meditation? One of the fascinating things about meditation for me is its universality. If you think of the enormous diversity of cultures and doctrines and philosophies around the world, it's rather extraordinary that when it comes down to the kinds of experiences that people have when they meditate, it's more or less the same all around the world. Certain basic things happen that seem to be quite independent of cultures, and even of the underlying doctrines and theologies and worldview of the practitioners. An interesting case of this is with regards to the phenomenon of kriyas. Kriya is something that is well known in the meditative systems that come from India or are influenced by India. It's spontaneous movements that can be at one end very mild and subtle, and at the other end bizarre and intense, and anything in between. It's spontaneous movements that are looked upon as a releasing process. There's a fascinating book that was written maybe in the 15th century, something like that. It was written in English, but that would mean it was written in Middle English, Chaucerian English, pre-Shakespeare English. The book is called The Cloud of Unknowing, and you can read it in a modern English translation. There have been many made. I like the one that was done by my friend, Father William Johnston, who is a Catholic Jesuit priest and very long-term practitioner of Zen meditation. He's got a nice translation, and because he has experience, he is qualified, I think, to translate these texts. There's this fascinating book. It's anonymous. It's small. It was probably written back in the 1400s or 1500s, called The Cloud of Unknowing. What's interesting is it's used by the Catholic Church, but it's also used by some Protestants, at least the Anglican community, what we would call Episcopalian in the United States, certainly makes use of it. In fact, it's a kind of English spiritual classic. When I was first doing meditation in Japan, when I was being trained in the early 70s at Mount Koya, and I was undergoing a hundred-day isolation practice, I kept that book by me, actually, as a kind of inspiration, even though I was doing Buddhist practice, because it seemed very germane to what I was experiencing. You might wonder what the somewhat strange word, unknowing, means. Well, unknowing is the process of having equanimity with the need to know, letting go of the need to know so that you can know in a new way, an intuitive spiritual way. So, very suggestive, interesting title. St. Thomas Aquinas, who is the standard authority on philosophy in the Catholic Church, said, I hope I'm not chopping the Latin too bad, Deum tamquam per ignorantiam cogniscimus. We know God directly through a very special kind of not knowing. The Cloud of Unknowing is a sort of step-by-step manual for how to do this. In there, there is a clear description of Kriyas. Now, mind you, we're talking something like 15th century, we're talking Western culture, we're talking a completely Christian environment, we're talking about people that would have known little, if anything, about India, certainly would not be at all familiar with any Indic concepts regarding spiritual practice. But that book, The Cloud of Unknowing, has a clear description of the phenomenon of Kriyas. And I just thought that's like fascinating. Clearly, the person that wrote the book was what is called a spiritual director. That means he was in charge of guiding people in their meditation practice, and he saw this phenomenon happening. What's interesting is that he points out that people have a tendency to think that these strange movements and idiosyncratic sort of gestures and whimsical forms of behavior and whatever are a sign of spiritual progress. It's like, apparently in that day, people thought that this proves that the Spirit is within you or something like that. The author of The Cloud of Unknowing was totally contemptuous of that point of view and pointed out essentially what I mentioned in my first segment about the Kriyas, which is that the name of the game is to neither desire them nor suppress them. You just have to sort of let them do their thing. It's just fascinating to me how there's a kind of universality across time and space with regards to the types of phenomena that come up when we practice and also with regards to how mature or immature people are about these types of phenomena. They tend to be either mature or immature in similar ways. They tend to have effective ways of dealing with things or non-effective ways of dealing with things in more or less similar ways and so forth. So anyway, I think if you're on the spiritual path, you might enjoy reading that book, The Cloud of Unknowing.

@@ -1,0 +1,23 @@
+site_name: 真善 - Shinzen Transcripts
+
+
+theme:
+  features:
+    - content.tabs.link
+  name: material
+
+ 
+nav:
+    - Home : .
+    - expandcontract: expandcontract/index.md
+    - ShinzenVideos: shinzenvideos/index.md
+
+
+markdown_extensions:
+  - pymdownx.superfences
+  - pymdownx.tabbed:
+      alternate_style: true 
+  - attr_list
+  - pymdownx.emoji:
+      emoji_index: !!python/name:materialx.emoji.twemoji
+      emoji_generator: !!python/name:materialx.emoji.to_svg

@@ -1,0 +1,70 @@
+---
+title: "'Vipassana' & 'Mindfulness' ~ Shinzen Young"
+
+---
+=== "Timestamps"
+    | Timestamp | Text Segment |
+    | ---------- | ----  |
+    | [00:00:00](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=0) |  What is the origin of the word vipassana? |
+    | [00:00:08](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=8) |  Literally, if we look at the etymology, that is to say, the origin of the word vipassana, |
+    | [00:00:18](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=18) |  we can analyze it into the prefix vi- and the word passana. |
+    | [00:00:26](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=26) |  Passana means seeing. It comes from the root pas in Pali or pas in Sanskrit, which means to see. |
+    | [00:00:39](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=39) |  Paschati is to see. And although it might not be immediately evident, |
+    | [00:00:45](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=45) |  actually that root in Sanskrit, paschati, is related both to the Latin specere, speck, |
+    | [00:00:59](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=59) |  which means to see. Speck becomes, spash becomes pasch in Sanskrit. |
+    | [00:01:05](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=65) |  And it's related to the Greek scope, skeptos, that kind of thing. |
+    | [00:01:11](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=71) |  Essentially, the ka sound of Indo-European can sometimes become a sha sound in Sanskrit. |
+    | [00:01:20](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=80) |  So that's how you get speck becoming spash, becoming pasch. |
+    | [00:01:27](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=87) |  And vi has several meanings. It's actually derived from dvi. |
+    | [00:01:37](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=97) |  And dvi is the same root that gives us duo or the English word two, which is really two, right? T-W-O. |
+    | [00:01:49](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=109) |  So the dv and the tw are the Indo-European root that means two or separate or apart. |
+    | [00:01:59](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=119) |  So the corresponding Greek word is dia, D-I-A, which would have been pronounced dia in ancient Greek. |
+    | [00:02:13](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=133) |  If you look at how dia is used in forming words in English, dia has a meaning of through. |
+    | [00:02:22](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=142) |  For example, diathermy is to send heat through a person as a healing modality. |
+    | [00:02:31](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=151) |  On the other hand, dia also means apart or separate. |
+    | [00:02:36](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=156) |  For example, a diagnosis is to know separately or to know distinctly. |
+    | [00:02:42](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=162) |  A diacritic is a distinguishing mark, something that allows you to separate similar things. |
+    | [00:02:53](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=173) |  So not surprisingly, the corresponding prefix in Sanskrit, vi, means those two things. |
+    | [00:03:05](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=185) |  It means both separate and through. |
+    | [00:03:09](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=189) |  So literally, vipassana would mean to see separately, but it would also mean to see through. |
+    | [00:03:20](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=200) |  So to see separately, in my interpretation, is the ability to separate the basic sensory elements of experience, |
+    | [00:03:31](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=211) |  which I like to classify in terms of touch, sight, sound, feel, image, and talk. |
+    | [00:03:44](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=224) |  I've described the meanings of those elsewhere. |
+    | [00:03:48](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=228) |  So vipassana in the sense of separate sensory elements, we can also have even finer separations. |
+    | [00:03:56](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=236) |  Different flavors of feel can be separated, different flavors of touch. |
+    | [00:04:04](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=244) |  You can distinguish different kinds of images, images that are of people, places versus objects, and so forth. |
+    | [00:04:15](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=255) |  So to separate the sensory strands is one meaning of vipassana, to see separate. |
+    | [00:04:21](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=261) |  But vipassana also means to see through. |
+    | [00:04:26](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=266) |  That means that once you separate a strand, you intently focus on that strand, |
+    | [00:04:32](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=272) |  and your awareness soaks into its interstices. |
+    | [00:04:36](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=276) |  That has the effect of causing it to soften, dissolve, so that it shows you its empty and vibrant nature. |
+    | [00:04:49](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=289) |  That seeing through or soaking in aspect also has the effect of reaching down into the subliminal neuronal circuitry, |
+    | [00:05:07](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=307) |  into the unconscious itself, so that there's a kind of trickle-down of clarity |
+    | [00:05:12](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=312) |  down to the depths of one's subconscious levels of processing. |
+    | [00:05:21](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=321) |  So I take vipassana to mean the twofold endeavor of separating strands and then soaking into those strands |
+    | [00:05:31](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=331) |  and literally seeing through their somethingness. |
+    | [00:05:35](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=335) |  Now vipassana also has a third meaning. The V can be combined with pasana to mean insight. |
+    | [00:05:46](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=346) |  In other words, the aha or wisdom experience, the change in paradigm that we call no-self |
+    | [00:05:58](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=358) |  or insight into the marks of existence or enlightenment. |
+    | [00:06:03](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=363) |  That change in paradigm, that wisdom or insight, is also implied by the word vipassana. |
+    | [00:06:14](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=374) |  So vipassana means, as I like to interpret it anyway, it means separate, see apart, see through, |
+    | [00:06:25](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=385) |  and see into your true nature or insight. |
+    | [00:06:28](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=388) |  And it has all three of those meanings in one word. |
+    | [00:06:34](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=394) |  So we don't have anything like it in English. There's no English equivalent. |
+    | [00:06:39](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=399) |  There's no word in English that means separate your sensory experience into natural components, |
+    | [00:06:46](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=406) |  soak your awareness into those components, and as the result of that you will experience a paradigm shift called wisdom. |
+    | [00:06:55](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=415) |  Vipassana means all of that as one word. |
+    | [00:07:00](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=420) |  So in my usage I essentially use vipassana and mindfulness as synonyms. |
+    | [00:07:10](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=430) |  Now strictly speaking, historically, the word mindfulness goes back to sati or satipatthana, |
+    | [00:07:16](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=436) |  it goes back to a different word, but really the notions in my way of thinking are essentially the same. |
+    | [00:07:28](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=448) |  The way I like to set up my definition of mindfulness involves the separating, the soaking into, |
+    | [00:07:38](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=458) |  which I call the sensory clarity. |
+    | [00:07:40](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=460) |  Of course, in order to do that you have to have concentration power. |
+    | [00:07:46](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=466) |  And then the equanimity piece is not implied by the word vipassana etymologically, |
+    | [00:07:55](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=475) |  but in terms of practical considerations, all mindfulness teachers emphasize this sort of gentle matter of fact. |
+    | [00:08:04](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=484) |  Sometimes it's defined as non-judgmental. That's not the term I use, but I prefer the more traditional equanimity term. |
+    | [00:08:14](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=494) |  But all vipassana teachers emphasize that in addition to the clarification aspects. |
+    | [00:08:22](https://www.youtube.com/watch?v=FuRbQsQxDRk&t=502) |  So that's sort of how I understand the terminology. |
+
+=== "Text"
+     What is the origin of the word vipassana? Literally, if we look at the etymology, that is to say, the origin of the word vipassana, we can analyze it into the prefix vi- and the word passana. Passana means seeing. It comes from the root pas in Pali or pas in Sanskrit, which means to see. Paschati is to see. And although it might not be immediately evident, actually that root in Sanskrit, paschati, is related both to the Latin specere, speck, which means to see. Speck becomes, spash becomes pasch in Sanskrit. And it's related to the Greek scope, skeptos, that kind of thing. Essentially, the ka sound of Indo-European can sometimes become a sha sound in Sanskrit. So that's how you get speck becoming spash, becoming pasch. And vi has several meanings. It's actually derived from dvi. And dvi is the same root that gives us duo or the English word two, which is really two, right? T-W-O. So the dv and the tw are the Indo-European root that means two or separate or apart. So the corresponding Greek word is dia, D-I-A, which would have been pronounced dia in ancient Greek. If you look at how dia is used in forming words in English, dia has a meaning of through. For example, diathermy is to send heat through a person as a healing modality. On the other hand, dia also means apart or separate. For example, a diagnosis is to know separately or to know distinctly. A diacritic is a distinguishing mark, something that allows you to separate similar things. So not surprisingly, the corresponding prefix in Sanskrit, vi, means those two things. It means both separate and through. So literally, vipassana would mean to see separately, but it would also mean to see through. So to see separately, in my interpretation, is the ability to separate the basic sensory elements of experience, which I like to classify in terms of touch, sight, sound, feel, image, and talk. I've described the meanings of those elsewhere. So vipassana in the sense of separate sensory elements, we can also have even finer separations. Different flavors of feel can be separated, different flavors of touch. You can distinguish different kinds of images, images that are of people, places versus objects, and so forth. So to separate the sensory strands is one meaning of vipassana, to see separate. But vipassana also means to see through. That means that once you separate a strand, you intently focus on that strand, and your awareness soaks into its interstices. That has the effect of causing it to soften, dissolve, so that it shows you its empty and vibrant nature. That seeing through or soaking in aspect also has the effect of reaching down into the subliminal neuronal circuitry, into the unconscious itself, so that there's a kind of trickle-down of clarity down to the depths of one's subconscious levels of processing. So I take vipassana to mean the twofold endeavor of separating strands and then soaking into those strands and literally seeing through their somethingness. Now vipassana also has a third meaning. The V can be combined with pasana to mean insight. In other words, the aha or wisdom experience, the change in paradigm that we call no-self or insight into the marks of existence or enlightenment. That change in paradigm, that wisdom or insight, is also implied by the word vipassana. So vipassana means, as I like to interpret it anyway, it means separate, see apart, see through, and see into your true nature or insight. And it has all three of those meanings in one word. So we don't have anything like it in English. There's no English equivalent. There's no word in English that means separate your sensory experience into natural components, soak your awareness into those components, and as the result of that you will experience a paradigm shift called wisdom. Vipassana means all of that as one word. So in my usage I essentially use vipassana and mindfulness as synonyms. Now strictly speaking, historically, the word mindfulness goes back to sati or satipatthana, it goes back to a different word, but really the notions in my way of thinking are essentially the same. The way I like to set up my definition of mindfulness involves the separating, the soaking into, which I call the sensory clarity. Of course, in order to do that you have to have concentration power. And then the equanimity piece is not implied by the word vipassana etymologically, but in terms of practical considerations, all mindfulness teachers emphasize this sort of gentle matter of fact. Sometimes it's defined as non-judgmental. That's not the term I use, but I prefer the more traditional equanimity term. But all vipassana teachers emphasize that in addition to the clarification aspects. So that's sort of how I understand the terminology.

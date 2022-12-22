@@ -1,0 +1,48 @@
+---
+title: "Reality & Sensory Experience ~ Shinzen Young"
+
+---
+=== "Timestamps"
+    | Timestamp | Text Segment |
+    | ---------- | ----  |
+    | [00:00:00](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=0) |  I usually don't talk about reality. I prefer to talk about sensory experience. Sensory |
+    | [00:00:11](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=11) |  experience is something I have a lot of confidence with. When I make statements about sensory |
+    | [00:00:18](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=18) |  experience, it's based on years and years of my own investigations, working with my |
+    | [00:00:25](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=25) |  own sensory experience, other people's sensory experience. So, as I say, I have a lot of |
+    | [00:00:32](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=32) |  confidence in that. I don't speak about the underlying reality that's behind sensory experience, |
+    | [00:00:41](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=41) |  or even if there is a reality behind sensory experience, or what is it? People will often |
+    | [00:00:47](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=47) |  ask, well, what do we really see? What do we really hear? The reason I don't talk about |
+    | [00:00:54](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=54) |  it is that I don't have confidence that I have good answers about it. I have my own |
+    | [00:01:02](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=62) |  conjectures, but they're just that. When it comes to sensory experience, I know I can |
+    | [00:01:09](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=69) |  teach people things that are true, deep, useful, and broad. Now, in general, things that are |
+    | [00:01:16](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=76) |  true, deep, useful, and broad are considered good science. So I think I can give good science |
+    | [00:01:24](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=84) |  for sensory experience. In terms of what's behind sensory experience, or what's really |
+    | [00:01:32](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=92) |  out there, I notice that very intelligent people seem to be arguing about this for a |
+    | [00:01:39](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=99) |  very, very long time. Intelligent people that have given a lot of thought and research to |
+    | [00:01:47](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=107) |  the question of what is objective external reality, that is to say, scientists and philosophers, |
+    | [00:01:55](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=115) |  people who specialize in this field, do not seem to be able to agree and have not been |
+    | [00:02:02](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=122) |  able to agree for a very, very long time. That indicates to me that although someday |
+    | [00:02:10](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=130) |  the question probably will be answered in a satisfactory way for humanity, at this point |
+    | [00:02:17](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=137) |  in human history, it's still contentious and conjectural, and therefore not something that |
+    | [00:02:24](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=144) |  I, as an amateur, would want to make any statements about. So I limit myself to what I know for |
+    | [00:02:32](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=152) |  sure. I know for sure that our sense of perceiving self arises through feel-image-talk reactions |
+    | [00:02:43](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=163) |  to touch-sight sound. I know for sure that sensory experience is a very, very important |
+    | [00:02:50](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=170) |  process to touch-sight sound. I know for sure that suffering equals pain multiplied by resistance, |
+    | [00:02:58](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=178) |  et cetera, et cetera. For me, these awarenesses of sensory experience are enormously liberating. |
+    | [00:03:12](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=192) |  I know for sure that when you bring enough concentration, clarity, and equanimity to |
+    | [00:03:17](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=197) |  any ordinary sensory experience, that ordinary sensory experience becomes so utterly extraordinary |
+    | [00:03:24](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=204) |  that it could be named spiritual. To me, this is important stuff, and I have absolute confidence |
+    | [00:03:32](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=212) |  in it. |
+    | [00:03:35](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=215) |  If you ask me, well, what's the object of reality reflected in touch-sight sound, feel-image-talk, |
+    | [00:03:42](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=222) |  the sensory experiences we have? I say, I don't know. Could I make a wild conjecture? |
+    | [00:03:51](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=231) |  Sure, but it would be a wild conjecture, not something that I would speak with a lot of |
+    | [00:03:57](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=237) |  confidence and certainly not something that I would try to convince any other human being |
+    | [00:04:02](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=242) |  of. If I were to make a wild conjecture as to what's really out there, I would guess |
+    | [00:04:09](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=249) |  that every touch-sight, sound, feel-image-talk experience that we have is actually an experience |
+    | [00:04:18](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=258) |  of everything, everything altogether in a way that the human brain is not conditioned, |
+    | [00:04:25](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=265) |  evolved to perceive. We can't imagine what everything at once is, the whole causal nexus, |
+    | [00:04:43](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=283) |  the suchness. Our brains aren't designed to process that. That would be my guess, for |
+    | [00:04:50](https://www.youtube.com/watch?v=qbNHTDE1iYg&t=290) |  what it's worth. |
+
+=== "Text"
+     I usually don't talk about reality. I prefer to talk about sensory experience. Sensory experience is something I have a lot of confidence with. When I make statements about sensory experience, it's based on years and years of my own investigations, working with my own sensory experience, other people's sensory experience. So, as I say, I have a lot of confidence in that. I don't speak about the underlying reality that's behind sensory experience, or even if there is a reality behind sensory experience, or what is it? People will often ask, well, what do we really see? What do we really hear? The reason I don't talk about it is that I don't have confidence that I have good answers about it. I have my own conjectures, but they're just that. When it comes to sensory experience, I know I can teach people things that are true, deep, useful, and broad. Now, in general, things that are true, deep, useful, and broad are considered good science. So I think I can give good science for sensory experience. In terms of what's behind sensory experience, or what's really out there, I notice that very intelligent people seem to be arguing about this for a very, very long time. Intelligent people that have given a lot of thought and research to the question of what is objective external reality, that is to say, scientists and philosophers, people who specialize in this field, do not seem to be able to agree and have not been able to agree for a very, very long time. That indicates to me that although someday the question probably will be answered in a satisfactory way for humanity, at this point in human history, it's still contentious and conjectural, and therefore not something that I, as an amateur, would want to make any statements about. So I limit myself to what I know for sure. I know for sure that our sense of perceiving self arises through feel-image-talk reactions to touch-sight sound. I know for sure that sensory experience is a very, very important process to touch-sight sound. I know for sure that suffering equals pain multiplied by resistance, et cetera, et cetera. For me, these awarenesses of sensory experience are enormously liberating. I know for sure that when you bring enough concentration, clarity, and equanimity to any ordinary sensory experience, that ordinary sensory experience becomes so utterly extraordinary that it could be named spiritual. To me, this is important stuff, and I have absolute confidence in it. If you ask me, well, what's the object of reality reflected in touch-sight sound, feel-image-talk, the sensory experiences we have? I say, I don't know. Could I make a wild conjecture? Sure, but it would be a wild conjecture, not something that I would speak with a lot of confidence and certainly not something that I would try to convince any other human being of. If I were to make a wild conjecture as to what's really out there, I would guess that every touch-sight, sound, feel-image-talk experience that we have is actually an experience of everything, everything altogether in a way that the human brain is not conditioned, evolved to perceive. We can't imagine what everything at once is, the whole causal nexus, the suchness. Our brains aren't designed to process that. That would be my guess, for what it's worth.

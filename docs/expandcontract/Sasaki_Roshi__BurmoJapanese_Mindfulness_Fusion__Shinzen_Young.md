@@ -1,0 +1,87 @@
+---
+title: "Sasaki Roshi & Burmo-Japanese Mindfulness Fusion ~ Shinzen Young"
+
+---
+=== "Timestamps"
+    | Timestamp | Text Segment |
+    | ---------- | ----  |
+    | [00:00:00](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=0) |  you |
+    | [00:00:30](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=30) |  I would say his main innovation is the reframing of the Buddhist perspective |
+    | [00:00:42](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=42) |  called Anicca or impermanence in terms of expansion and contraction. In early |
+    | [00:00:50](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=50) |  Buddhism they talked about a stage in one's practice where after paying very |
+    | [00:01:00](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=60) |  close attention to sensory phenomena one's awareness becomes dominated by the |
+    | [00:01:08](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=68) |  perception of sensory events rising and passing. The word in Pali is Udayabhaya. |
+    | [00:01:17](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=77) |  Udaya means coming up and Vyaya means passing away. You combine them together |
+    | [00:01:25](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=85) |  and you have the word Udayabhaya. So there comes a time in one's practice |
+    | [00:01:33](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=93) |  where the sensory clarity is so great that you're aware of the risings and |
+    | [00:01:41](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=101) |  passings of sensory events and that dominates your awareness. A stage after |
+    | [00:01:49](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=109) |  that is an awareness not of sequential rising and passing but an awareness that |
+    | [00:01:57](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=117) |  no sooner does something arise but it's already passing. This is described quite |
+    | [00:02:05](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=125) |  clearly in the classic text on mindfulness practice called the Visuddhimagga. |
+    | [00:02:11](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=131) |  The Visuddhimagga was written probably in the 5th or 6th century AD in Sri Lanka |
+    | [00:02:18](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=138) |  by a man named Puttakosa. So in it he talks about this stage where no sooner |
+    | [00:02:28](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=148) |  is there the arising but there's the passing. Now I'm sure that Sasaki Roshi |
+    | [00:02:35](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=155) |  never read the Visuddhimagga but he's done decades and decades and decades of |
+    | [00:02:43](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=163) |  practice. He's 102 now. He began his practice when he was 14 years old and |
+    | [00:02:50](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=170) |  what a practice! Japanese Rinzai Zen, heavy duty samurai boot camp, monastic |
+    | [00:02:57](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=177) |  training from the age of 14. So the good news is he really really really has deep |
+    | [00:03:07](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=187) |  experience. The other news is it's hard to understand what he's saying because |
+    | [00:03:14](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=194) |  it's just so profound and advanced. I sincerely doubt that he ever read the |
+    | [00:03:21](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=201) |  Visuddhimagga but he has had all the experiences described there and has |
+    | [00:03:28](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=208) |  formulated them though in a somewhat different way. He talks about |
+    | [00:03:34](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=214) |  simultaneous expansion and contraction which is the same thing that |
+    | [00:03:41](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=221) |  Puttakosa talks about when he says no sooner is something rising but it's |
+    | [00:03:46](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=226) |  also passing away. So it's right there in the ancient literature. However if you |
+    | [00:03:54](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=234) |  formulate it as it is done in the Pali in terms of rising and passing then |
+    | [00:04:03](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=243) |  there is the danger that there's going to be a meditator over here observing |
+    | [00:04:12](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=252) |  the rising and passing over there. And in fact that would be a common criticism |
+    | [00:04:19](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=259) |  that Zen people might make of mindfulness practice. Well the expansion |
+    | [00:04:25](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=265) |  contraction formulation solves that problem because now instead of it's |
+    | [00:04:34](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=274) |  rising and passing at the same time you have the notion which allows for a |
+    | [00:04:41](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=281) |  two-dimensional thing over here that I'm observing back here. Expansion and |
+    | [00:04:46](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=286) |  contraction is three-dimensional. It's all-encompassing. When something arises |
+    | [00:04:52](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=292) |  it arises in three dimensions and that includes the observer as part of the |
+    | [00:04:59](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=299) |  arising. The observer is expanding into existence and contracting out |
+    | [00:05:08](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=308) |  of existence simultaneously as opposed to a two-dimensional thing that you |
+    | [00:05:12](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=312) |  observe. It's now a three-dimensional thing that you participate in. So I |
+    | [00:05:17](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=317) |  would say the main innovation of Sasaki Roshi is formulating impermanence in |
+    | [00:05:24](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=324) |  terms of expansion and contraction and the notion that if you simultaneously |
+    | [00:05:31](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=331) |  totally give yourself to the expansion and contraction you become the expansion |
+    | [00:05:37](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=337) |  and contraction. And then there's nothing but expansion and contraction and at |
+    | [00:05:42](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=342) |  some point they cancel each other out into a flat line of zero which is the |
+    | [00:05:51](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=351) |  unborn, the primordial state of the source. Then there is an abiding in zero |
+    | [00:05:58](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=358) |  until it repolarizes. When it polarizes once again in between, literally in |
+    | [00:06:06](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=366) |  between the forces of affirmation and negation, the forces of life and death, in |
+    | [00:06:12](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=372) |  between are born the feel-image-talk-perceiver and the touch-sight- |
+    | [00:06:19](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=379) |  sound-world. Both of them are born simultaneously in the cleft that |
+    | [00:06:26](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=386) |  surrounds self and world. This gives a model for how consciousness works and it |
+    | [00:06:36](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=396) |  allows for an experience where you participate in expansion, you |
+    | [00:06:43](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=403) |  simultaneously expand and contract. You and your world simultaneously are born |
+    | [00:06:49](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=409) |  in between the clefts of life and death and then life and death cancel out into |
+    | [00:06:55](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=415) |  zero and you go back to zero and then you and your world come out of zero |
+    | [00:07:02](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=422) |  again, born in the cleft in between expansion and contraction. And then that |
+    | [00:07:08](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=428) |  cleft collapses back into zero and this is the cycle of impermanence which |
+    | [00:07:17](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=437) |  Sasaki also calls the activity of the Dharma or the activity of consciousness |
+    | [00:07:26](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=446) |  and so forth. So I would say his main innovation is this three-dimensional |
+    | [00:07:33](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=453) |  paradigm that vastly broadens and generalizes the early Buddhist notion of |
+    | [00:07:41](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=461) |  impermanence and actually gives, in a sense, a mathematical formulation for |
+    | [00:07:47](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=467) |  what's going on in consciousness. As far as the main difference between his |
+    | [00:07:54](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=474) |  teaching and mine, he has you experience this through koan practice. What I've |
+    | [00:08:01](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=481) |  done is I've taken his model and I have mounted it within the noting practice |
+    | [00:08:09](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=489) |  of Burmese vipassana. To me that makes it more systematic and available to a |
+    | [00:08:17](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=497) |  larger audience. So instead of the sort of intuitive but very energetic Zen koan |
+    | [00:08:25](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=505) |  approach, I take a more prosaic algorithmic noting technique that I got |
+    | [00:08:33](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=513) |  from Burma and divide into a whole sequence of steps starting with |
+    | [00:08:43](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=523) |  just focusing on ordinary experience and then breaking it up finer and finer |
+    | [00:08:47](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=527) |  until by small manageable steps of noting certain phenomena I can bring the |
+    | [00:08:55](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=535) |  average person to actually experiencing this very advanced paradigm of expansion |
+    | [00:09:01](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=541) |  and contraction. So I would say that in some ways I'm very much part of the |
+    | [00:09:06](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=546) |  modern world in that in the modern world we have cuisines and music forms that |
+    | [00:09:14](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=554) |  are called fusion where you take two traditions and you fuse them in a way |
+    | [00:09:21](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=561) |  that's harmonious. So what I've done is I've fused the most creative of the |
+    | [00:09:27](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=567) |  contemporary Japanese Zen masters with a Burmese form of attentional skill |
+    | [00:09:38](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=578) |  training and so it's a sort of Burmo-Japanese fusion that was created |
+    | [00:09:50](https://www.youtube.com/watch?v=-pMyY6Abi4g&t=590) |  by a Jewish science geek. |
+
+=== "Text"
+     you I would say his main innovation is the reframing of the Buddhist perspective called Anicca or impermanence in terms of expansion and contraction. In early Buddhism they talked about a stage in one's practice where after paying very close attention to sensory phenomena one's awareness becomes dominated by the perception of sensory events rising and passing. The word in Pali is Udayabhaya. Udaya means coming up and Vyaya means passing away. You combine them together and you have the word Udayabhaya. So there comes a time in one's practice where the sensory clarity is so great that you're aware of the risings and passings of sensory events and that dominates your awareness. A stage after that is an awareness not of sequential rising and passing but an awareness that no sooner does something arise but it's already passing. This is described quite clearly in the classic text on mindfulness practice called the Visuddhimagga. The Visuddhimagga was written probably in the 5th or 6th century AD in Sri Lanka by a man named Puttakosa. So in it he talks about this stage where no sooner is there the arising but there's the passing. Now I'm sure that Sasaki Roshi never read the Visuddhimagga but he's done decades and decades and decades of practice. He's 102 now. He began his practice when he was 14 years old and what a practice! Japanese Rinzai Zen, heavy duty samurai boot camp, monastic training from the age of 14. So the good news is he really really really has deep experience. The other news is it's hard to understand what he's saying because it's just so profound and advanced. I sincerely doubt that he ever read the Visuddhimagga but he has had all the experiences described there and has formulated them though in a somewhat different way. He talks about simultaneous expansion and contraction which is the same thing that Puttakosa talks about when he says no sooner is something rising but it's also passing away. So it's right there in the ancient literature. However if you formulate it as it is done in the Pali in terms of rising and passing then there is the danger that there's going to be a meditator over here observing the rising and passing over there. And in fact that would be a common criticism that Zen people might make of mindfulness practice. Well the expansion contraction formulation solves that problem because now instead of it's rising and passing at the same time you have the notion which allows for a two-dimensional thing over here that I'm observing back here. Expansion and contraction is three-dimensional. It's all-encompassing. When something arises it arises in three dimensions and that includes the observer as part of the arising. The observer is expanding into existence and contracting out of existence simultaneously as opposed to a two-dimensional thing that you observe. It's now a three-dimensional thing that you participate in. So I would say the main innovation of Sasaki Roshi is formulating impermanence in terms of expansion and contraction and the notion that if you simultaneously totally give yourself to the expansion and contraction you become the expansion and contraction. And then there's nothing but expansion and contraction and at some point they cancel each other out into a flat line of zero which is the unborn, the primordial state of the source. Then there is an abiding in zero until it repolarizes. When it polarizes once again in between, literally in between the forces of affirmation and negation, the forces of life and death, in between are born the feel-image-talk-perceiver and the touch-sight- sound-world. Both of them are born simultaneously in the cleft that surrounds self and world. This gives a model for how consciousness works and it allows for an experience where you participate in expansion, you simultaneously expand and contract. You and your world simultaneously are born in between the clefts of life and death and then life and death cancel out into zero and you go back to zero and then you and your world come out of zero again, born in the cleft in between expansion and contraction. And then that cleft collapses back into zero and this is the cycle of impermanence which Sasaki also calls the activity of the Dharma or the activity of consciousness and so forth. So I would say his main innovation is this three-dimensional paradigm that vastly broadens and generalizes the early Buddhist notion of impermanence and actually gives, in a sense, a mathematical formulation for what's going on in consciousness. As far as the main difference between his teaching and mine, he has you experience this through koan practice. What I've done is I've taken his model and I have mounted it within the noting practice of Burmese vipassana. To me that makes it more systematic and available to a larger audience. So instead of the sort of intuitive but very energetic Zen koan approach, I take a more prosaic algorithmic noting technique that I got from Burma and divide into a whole sequence of steps starting with just focusing on ordinary experience and then breaking it up finer and finer until by small manageable steps of noting certain phenomena I can bring the average person to actually experiencing this very advanced paradigm of expansion and contraction. So I would say that in some ways I'm very much part of the modern world in that in the modern world we have cuisines and music forms that are called fusion where you take two traditions and you fuse them in a way that's harmonious. So what I've done is I've fused the most creative of the contemporary Japanese Zen masters with a Burmese form of attentional skill training and so it's a sort of Burmo-Japanese fusion that was created by a Jewish science geek.
