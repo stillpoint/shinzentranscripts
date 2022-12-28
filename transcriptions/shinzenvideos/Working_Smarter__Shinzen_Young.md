@@ -1,0 +1,72 @@
+---
+title: "Working Smarter ~ Shinzen Young"
+
+---
+<br>[00:00:00](https://www.youtube.com/watch?v=sr7txCTMeHA&t=0)   Sometimes when people first are introduced to your techniques, there can be a bit of 
+<br>[00:00:14](https://www.youtube.com/watch?v=sr7txCTMeHA&t=14)   an overwhelm because they're not prepared for the technical nature of them. 
+<br>[00:00:23](https://www.youtube.com/watch?v=sr7txCTMeHA&t=23)   What would you say to people to help them get through that initial overwhelm so that 
+<br>[00:00:32](https://www.youtube.com/watch?v=sr7txCTMeHA&t=32)   they stick around to get the ultimate simplicity and good stuff it leads to? 
+<br>[00:00:41](https://www.youtube.com/watch?v=sr7txCTMeHA&t=41)   I would say don't try to understand it, get used to it. 
+<br>[00:00:50](https://www.youtube.com/watch?v=sr7txCTMeHA&t=50)   There's a Japanese proverb, which literally means that. 
+<br>[00:00:57](https://www.youtube.com/watch?v=sr7txCTMeHA&t=57)   It's not a matter of learning it, it's a matter of getting accustomed to it. 
+<br>[00:01:04](https://www.youtube.com/watch?v=sr7txCTMeHA&t=64)   Someone once asked a very prominent 20th century mathematician, John von Neumann, about the 
+<br>[00:01:16](https://www.youtube.com/watch?v=sr7txCTMeHA&t=76)   mathematics that he had used during a lecture, they said, Professor von Neumann, I can't 
+<br>[00:01:23](https://www.youtube.com/watch?v=sr7txCTMeHA&t=83)   understand your math. 
+<br>[00:01:25](https://www.youtube.com/watch?v=sr7txCTMeHA&t=85)   He said, math is not something you understand, math is something you get used to. 
+<br>[00:01:32](https://www.youtube.com/watch?v=sr7txCTMeHA&t=92)   When I heard that, it was hugely helpful for me. 
+<br>[00:01:42](https://www.youtube.com/watch?v=sr7txCTMeHA&t=102)   You listen and you think and you practice and you read and you listen and you think 
+<br>[00:01:48](https://www.youtube.com/watch?v=sr7txCTMeHA&t=108)   and you practice and you read and you listen and you think and you practice and read over 
+<br>[00:01:54](https://www.youtube.com/watch?v=sr7txCTMeHA&t=114)   and over and over again, and with time, it sinks in. 
+<br>[00:02:00](https://www.youtube.com/watch?v=sr7txCTMeHA&t=120)   There is a reason why I formulated that copious and precise vocabulary. 
+<br>[00:02:12](https://www.youtube.com/watch?v=sr7txCTMeHA&t=132)   In the long run, it's going to hopefully allow people to work smarter. Because the old-fashioned 
+<br>[00:02:20](https://www.youtube.com/watch?v=sr7txCTMeHA&t=140)   way, where you have to just sort of discover it on your own, and often it's a brute force method, 
+<br>[00:02:27](https://www.youtube.com/watch?v=sr7txCTMeHA&t=147)   you just have to put yourself through such horrific ordeals that at some point you're just 
+<br>[00:02:35](https://www.youtube.com/watch?v=sr7txCTMeHA&t=155)   forced to experience certain states and forced to do certain things. Well, the average modern 
+<br>[00:02:43](https://www.youtube.com/watch?v=sr7txCTMeHA&t=163)   person is not going to intentionally put themselves through that kind of thing. So my idea was, 
+<br>[00:02:50](https://www.youtube.com/watch?v=sr7txCTMeHA&t=170)   instead of the brute force methods, if we can make the formulation crystal clear, 
+<br>[00:02:59](https://www.youtube.com/watch?v=sr7txCTMeHA&t=179)   yes, up front it takes a little bit of work, because it's like we're being sent back to school. 
+<br>[00:03:04](https://www.youtube.com/watch?v=sr7txCTMeHA&t=184)   It's like, what? I have to learn vocabulary, I have to learn definitions, I have to make 
+<br>[00:03:11](https://www.youtube.com/watch?v=sr7txCTMeHA&t=191)   subtle distinctions with regards to things that seem irrelevant or that I haven't experienced. 
+<br>[00:03:17](https://www.youtube.com/watch?v=sr7txCTMeHA&t=197)   So I do understand that people have that resistance at the beginning. There's always 
+<br>[00:03:23](https://www.youtube.com/watch?v=sr7txCTMeHA&t=203)   strong points and weak points in every way of working. The weak point in the way that I work, 
+<br>[00:03:32](https://www.youtube.com/watch?v=sr7txCTMeHA&t=212)   one of them, is that up front you're asked to really carefully think about the nature of sensory 
+<br>[00:03:41](https://www.youtube.com/watch?v=sr7txCTMeHA&t=221)   experience, to have a classificatory system for sensory experience and also for the things that 
+<br>[00:03:48](https://www.youtube.com/watch?v=sr7txCTMeHA&t=228)   lead beyond sensory experience. It's described in a vocabulary that is something like the 
+<br>[00:03:57](https://www.youtube.com/watch?v=sr7txCTMeHA&t=237)   rigor and precision that we would find in mathematics. So it's like, wow, you're right, 
+<br>[00:04:03](https://www.youtube.com/watch?v=sr7txCTMeHA&t=243)   that's a major stumbling block for people because they don't expect to have to learn 
+<br>[00:04:10](https://www.youtube.com/watch?v=sr7txCTMeHA&t=250)   to work that way. They're thinking they're coming to a retreat. Yeah, it's going to be 
+<br>[00:04:19](https://www.youtube.com/watch?v=sr7txCTMeHA&t=259)   Zen poetry and a finger pointing to the hazy moon and suddenly it's like calculus. What am I doing 
+<br>[00:04:27](https://www.youtube.com/watch?v=sr7txCTMeHA&t=267)   here? However, my idea is that for that relatively small investment up front, in the end it will 
+<br>[00:04:37](https://www.youtube.com/watch?v=sr7txCTMeHA&t=277)   allow them to work smarter and be able to achieve the classic goals, I don't necessarily say faster, 
+<br>[00:04:45](https://www.youtube.com/watch?v=sr7txCTMeHA&t=285)   but with less necessity for horrific intensities. Because when you hear about the sort of 
+<br>[00:04:56](https://www.youtube.com/watch?v=sr7txCTMeHA&t=296)   traditional trainings that are done... And you're talking monastery... Yeah, monastic intensities, 
+<br>[00:05:01](https://www.youtube.com/watch?v=sr7txCTMeHA&t=301)   like, wow, who wants to put themselves through that kind of thing? So my idea is by giving people 
+<br>[00:05:08](https://www.youtube.com/watch?v=sr7txCTMeHA&t=308)   this very precise vocabulary and having them maybe work a little smarter, that in the end, 
+<br>[00:05:16](https://www.youtube.com/watch?v=sr7txCTMeHA&t=316)   that will allow them to have comparable depth of experience, but still have their normal North 
+<br>[00:05:22](https://www.youtube.com/watch?v=sr7txCTMeHA&t=322)   American or modern, let's say, comfortable lifestyle. So yes, it's some investment up front, 
+<br>[00:05:31](https://www.youtube.com/watch?v=sr7txCTMeHA&t=331)   but I think, number one, if they realize how much it's going to help down the line, and number two, 
+<br>[00:05:40](https://www.youtube.com/watch?v=sr7txCTMeHA&t=340)   if they just take it gradually, just gradually get used to it. That's what I would say with regards 
+<br>[00:05:46](https://www.youtube.com/watch?v=sr7txCTMeHA&t=346)   to that. Maybe take a break and do easing up, bearing down and easing up to balance, so that 
+<br>[00:05:52](https://www.youtube.com/watch?v=sr7txCTMeHA&t=352)   if they've been working very hard, they can ease up and do something that would be less intense. 
+<br>[00:06:00](https://www.youtube.com/watch?v=sr7txCTMeHA&t=360)   Well, I think you're asking with regards to learning the vocabulary, is that correct? 
+<br>[00:06:05](https://www.youtube.com/watch?v=sr7txCTMeHA&t=365)   Well, I was actually talking about first coming in with all the five ways and all the techniques 
+<br>[00:06:11](https://www.youtube.com/watch?v=sr7txCTMeHA&t=371)   and that potential overwhelm. I remember before the five ways, when I first went to one of your 
+<br>[00:06:17](https://www.youtube.com/watch?v=sr7txCTMeHA&t=377)   retreats, I said, you know, I was in an online with you and I said, you know, this is like playing 
+<br>[00:06:22](https://www.youtube.com/watch?v=sr7txCTMeHA&t=382)   scales. This is technical work, I'm having to pay attention and really play scales. And I stopped 
+<br>[00:06:30](https://www.youtube.com/watch?v=sr7txCTMeHA&t=390)   being a classical musician because I didn't want to practice my scales. And you said, it is like 
+<br>[00:06:35](https://www.youtube.com/watch?v=sr7txCTMeHA&t=395)   playing scales, but the music is your life. And I thought, good answer. You know, so that you're 
+<br>[00:06:46](https://www.youtube.com/watch?v=sr7txCTMeHA&t=406)   developing the skill to use in your life. Well, I would say that the reason I present people with 
+<br>[00:06:54](https://www.youtube.com/watch?v=sr7txCTMeHA&t=414)   several approaches is not that I necessarily want them to learn how to do all those approaches. 
+<br>[00:07:04](https://www.youtube.com/watch?v=sr7txCTMeHA&t=424)   I would like them to be exposed to a range of possibilities so that they can find what works 
+<br>[00:07:10](https://www.youtube.com/watch?v=sr7txCTMeHA&t=430)   for them. Some people like the flexibility of having five contrasting ways of working, 
+<br>[00:07:16](https://www.youtube.com/watch?v=sr7txCTMeHA&t=436)   but some people will just choose one of those five and decide that's all I'm going to go for. 
+<br>[00:07:28](https://www.youtube.com/watch?v=sr7txCTMeHA&t=448)   But at least they can see the range of what is available. And then, so the idea is not that you 
+<br>[00:07:37](https://www.youtube.com/watch?v=sr7txCTMeHA&t=457)   have to learn this giant system. The idea is all you have to do is find one good technique that 
+<br>[00:07:47](https://www.youtube.com/watch?v=sr7txCTMeHA&t=467)   works for you. And then if you want to just stay with that, fine. If you want to learn other things, 
+<br>[00:07:53](https://www.youtube.com/watch?v=sr7txCTMeHA&t=473)   that's fine too. So I think the combination of realizing that you only need one good technique, 
+<br>[00:07:59](https://www.youtube.com/watch?v=sr7txCTMeHA&t=479)   plus giving yourself time to get used to the vocabulary and take it slowly, plus realizing 
+<br>[00:08:07](https://www.youtube.com/watch?v=sr7txCTMeHA&t=487)   that the complexity and the scrupulous precision will in the end pay off because you'll be able 
+<br>[00:08:19](https://www.youtube.com/watch?v=sr7txCTMeHA&t=499)   to work smarter or get more bang for the buck, so to speak. I think keeping that in mind may 
+<br>[00:08:26](https://www.youtube.com/watch?v=sr7txCTMeHA&t=506)   help people a little bit with the challenges of studying meditation with a demented physics 
+<br>[00:08:34](https://www.youtube.com/watch?v=sr7txCTMeHA&t=514)   professor. Somebody once called me that. A demented physics professor. I like that. You can use it. 
+<br>

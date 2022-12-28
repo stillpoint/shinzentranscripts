@@ -1,0 +1,370 @@
+---
+title: "Description of & Paths to Liberated Experience (Enlightenment) ~ Shinzen Young"
+
+---
+<br>[00:00:00](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=0)   There are many ways to come to optimal happiness. 
+<br>[00:00:27](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=27)   You can carefully observe phenomena, break them down into finer and finer distinctions 
+<br>[00:00:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=37)   until you see the vibrant void that is their nature. 
+<br>[00:00:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=42)   That's sort of the observing and we use that a lot here. 
+<br>[00:00:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=48)   There's another strategy that can be successful which is more the nurture positive kind of 
+<br>[00:00:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=58)   thing. 
+<br>[00:00:59](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=59)   If you go all the way and develop an absorption level of concentration on positive image, 
+<br>[00:01:10](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=70)   talk and emotional body, you literally become that and your former identity passes away 
+<br>[00:01:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=82)   or at least is suspended for a while. 
+<br>[00:01:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=85)   So I reckon that at least in theory, nurture positive could be a path to radical freedom 
+<br>[00:01:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=97)   and in fact, this is one of the major claims of Vajrayana practice in Tibet that these 
+<br>[00:01:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=105)   so-called deity yoga practices, they're not just concentration exercises. 
+<br>[00:01:54](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=114)   They are a component by component replacement of the inner seer, of the ordinary human seer 
+<br>[00:02:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=123)   feel with an alternate archetypal identity. 
+<br>[00:02:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=129)   The reason to do it is not to go insane, to think that you're a myth. 
+<br>[00:02:16](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=136)   The reason to do it is not shamanic possession. 
+<br>[00:02:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=140)   It's a very different critter. 
+<br>[00:02:21](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=141)   It's done systematically in order to gain insight into the arbitrary nature of self-identification. 
+<br>[00:02:31](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=151)   So part of the influences on me in developing the way of teaching that I teach, well I'm 
+<br>[00:02:41](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=161)   very influenced by early Buddhism that took the divide and conquer strategy which is, 
+<br>[00:02:50](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=170)   okay, you break it down into pieces, sub-pieces and eventually you sort of know it to death 
+<br>[00:02:59](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=179)   and love it to death and you become free. 
+<br>[00:03:02](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=182)   The it in this case is self. 
+<br>[00:03:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=186)   Okay, so that's what sort of leads to the focus in approach that I use. 
+<br>[00:03:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=197)   However the nurture positive working explicitly with image, talk, emotional body and in Vajrayana 
+<br>[00:03:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=205)   you also work with the physical body by making mudras. 
+<br>[00:03:31](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=211)   Working with those components, if you develop enough concentration, that's why they call 
+<br>[00:03:36](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=216)   it deity yoga. 
+<br>[00:03:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=217)   Yoga has many meanings. 
+<br>[00:03:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=218)   One of the meanings is exercise. 
+<br>[00:03:41](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=221)   Another meaning of yoga is merging or becoming. 
+<br>[00:03:47](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=227)   So you merge with, you actually become the archetypal content that you create and as 
+<br>[00:04:02](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=242)   I say it's not to go insane and it's not to shamanically channel something, it's to gain 
+<br>[00:04:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=249)   insight into the arbitrary nature of self-identification. 
+<br>[00:04:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=253)   It's like playing with identity like with Lego toys. 
+<br>[00:04:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=260)   It's like a tinker toy kit. 
+<br>[00:04:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=262)   You put one identity together, you take it apart and then you put another one together 
+<br>[00:04:26](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=266)   then you take it apart. 
+<br>[00:04:27](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=267)   Because it's not just one deity yoga, it's like a sequence of deities. 
+<br>[00:04:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=274)   I take that as a path that could in theory give you insight into no self. 
+<br>[00:04:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=282)   So that's a whole way of working. 
+<br>[00:04:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=285)   Then there's sort of Zen which has a lot of different aspects to it which I won't go into 
+<br>[00:04:53](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=293)   but one, just one of the aspects in Zen is merging of inside and outside by pouring all 
+<br>[00:05:07](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=307)   your attention on the physical sight, physical sound, physicality of the body. 
+<br>[00:05:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=313)   There's only so much real estate in consciousness. 
+<br>[00:05:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=317)   So if all the water sloshes out, that inner world contracts and vanishes and you merge, 
+<br>[00:05:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=328)   you become one with what was formerly out. 
+<br>[00:05:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=333)   So that's a way of working. 
+<br>[00:05:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=337)   Then there's a whole other approach which might be called the meditation of no meditation 
+<br>[00:05:44](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=344)   where you simply drop all efforting. 
+<br>[00:05:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=349)   That contrasts with the other ways of working, right? 
+<br>[00:05:54](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=354)   You can take the components of self and untangle them and see their vibrant void nature or 
+<br>[00:06:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=365)   you can merge with an archetype. 
+<br>[00:06:10](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=370)   The ordinary identity contracts, a mythic identity expands. 
+<br>[00:06:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=377)   Once again, you get insight into the arbitrary nature of self-identification. 
+<br>[00:06:24](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=384)   Or you can merge out, see out, hear out, feel out. 
+<br>[00:06:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=390)   But those all require effort, particularly the deity yoga type practice. 
+<br>[00:06:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=399)   You're having to actually create intentionally the image, the talk, the body sensations and 
+<br>[00:06:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=406)   so forth. 
+<br>[00:06:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=408)   So very contrasting with that is, okay, drop all effort. 
+<br>[00:06:55](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=415)   So that's a do nothing kind of approach. 
+<br>[00:06:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=418)   That works for some people well. 
+<br>[00:07:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=423)   A contrasting approach to all of the above, which I don't normally do as part of the system, 
+<br>[00:07:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=433)   but is definitely something that is powerful and something to look into if you're interested, 
+<br>[00:07:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=440)   is this whole sort of self-inquiry way of working. 
+<br>[00:07:27](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=447)   It's been discovered and rediscovered in different forms, different cultures, different times. 
+<br>[00:07:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=459)   It tends to be associated with some of the Hindu Advaita teachings and so forth. 
+<br>[00:07:47](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=467)   There's some great, great Advaita teachers online that have had really deep experience 
+<br>[00:07:54](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=474)   using this approach. 
+<br>[00:07:59](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=479)   So in Sanskrit, it's called Atma-Vichara. 
+<br>[00:08:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=483)   Vichara means to investigate and Atma means self. 
+<br>[00:08:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=489)   But it also is another part of some of the Zen teachers. 
+<br>[00:08:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=497)   Who am I? 
+<br>[00:08:18](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=498)   What are you? 
+<br>[00:08:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=500)   In fact, that was the koan that my very first teacher gave me, Okamura Keishin Sensei. 
+<br>[00:08:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=513)   That was the last time when he and I were together in Japan. 
+<br>[00:08:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=518)   I was going back to the US and he said, okay, here's your koan. 
+<br>[00:08:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=525)   Who are you? 
+<br>[00:08:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=526)   What are you? 
+<br>[00:08:47](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=527)   It's like, okay, how do I work on this koan? 
+<br>[00:08:55](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=535)   Turn the light back on itself. 
+<br>[00:08:59](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=539)   What do you mean? 
+<br>[00:09:02](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=542)   Bring them back to the source of the stream of consciousness. 
+<br>[00:09:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=549)   What's that mean? 
+<br>[00:09:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=552)   Just do it. 
+<br>[00:09:14](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=554)   So that was sort of the, I'm paraphrasing, but that was sort of the dialogue, okay. 
+<br>[00:09:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=560)   There's not much you can, it's not an algorithm, okay. 
+<br>[00:09:23](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=563)   It's like groping. 
+<br>[00:09:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=565)   You're pushing back, pushing back, pushing back. 
+<br>[00:09:31](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=571)   A question, koan, who am I? 
+<br>[00:09:36](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=576)   Or where does thought come from? 
+<br>[00:09:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=578)   Or who sees? 
+<br>[00:09:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=579)   You can choose any language that you want. 
+<br>[00:09:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=582)   There's a lot of ways to formulate the question. 
+<br>[00:09:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=585)   The important thing to realize is this is koan work. 
+<br>[00:09:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=589)   This is not an intellectual question that you're going to say, oh, I am, and there's 
+<br>[00:09:57](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=597)   going to be a substantive, and now you have answered that question. 
+<br>[00:10:01](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=601)   That's not what this is about. 
+<br>[00:10:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=604)   This is about each arising of self. 
+<br>[00:10:11](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=611)   You're trying to sort of metaphorically look over your shoulder and see where it came from. 
+<br>[00:10:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=622)   As I say, it can be formulated in a lot of different words, but the method is the same, 
+<br>[00:10:29](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=629)   essentially the same or very similar. 
+<br>[00:10:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=634)   For some people that ends up very much related to that spacious thing that we were doing, 
+<br>[00:10:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=642)   where you start to get a sense that, okay, I'm the space all around looking in. 
+<br>[00:10:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=648)   That might be a stage that you pass through and you disidentify with the content of experience. 
+<br>[00:10:57](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=657)   A good teacher of this method won't let you mistake a fixated sense of witness as the 
+<br>[00:11:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=669)   true self, though. 
+<br>[00:11:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=672)   If it's at all fixated in space, like, okay, I'm over here kind of thing, well, now you 
+<br>[00:11:18](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=678)   need to look back a little further. 
+<br>[00:11:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=682)   So interestingly, it's not just in Hinduism and some of the Buddhist schools of Zen, but 
+<br>[00:11:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=698)   you actually find this method or something a little like this used in some of the Theravada 
+<br>[00:11:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=705)   traditions where they're trying to sort of like inquire, push it back, push it back. 
+<br>[00:11:53](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=713)   I've seen some Theravada teachers that teach this way. 
+<br>[00:11:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=718)   And really interesting is some anonymous guy in the 15th century in England hit upon this. 
+<br>[00:12:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=739)   And I would almost be certain that he hit upon it without anyone pointing it out to 
+<br>[00:12:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=745)   him. 
+<br>[00:12:26](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=746)   He just hit upon it, just discovered it. 
+<br>[00:12:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=752)   Do you know who I'm talking about? 
+<br>[00:12:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=753)   He's anonymous, but there's a work of literature he wrote. 
+<br>[00:12:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=758)   That's the Cloud of Unknowing, a classic in both Catholicism and Anglicanism, Episcopalian 
+<br>[00:12:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=769)   in other words. 
+<br>[00:12:53](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=773)   In there you can see him struggling to try to describe something that had no tradition 
+<br>[00:13:02](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=782)   in Europe. 
+<br>[00:13:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=786)   But you could see it was really important for him. 
+<br>[00:13:11](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=791)   I should have prepared, showed you the section, but I'm paraphrasing, but it's something like 
+<br>[00:13:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=799)   keep beating away at the cloud of ignorance with the sword of love of God. 
+<br>[00:13:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=828)   Pushing back, pushing back to experience your existence, what lies behind you moment by 
+<br>[00:14:02](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=842)   moment. 
+<br>[00:14:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=843)   I'm paraphrasing, maybe I'll go find the quote on the internet. 
+<br>[00:14:08](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=848)   But it's something to that effect. 
+<br>[00:14:10](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=850)   It's very obvious that he's struggling to describe something like a self-inquiry process. 
+<br>[00:14:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=857)   Seems obvious to me anyway. 
+<br>[00:14:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=859)   I find it extraordinary that someone would have hit upon this independently and within 
+<br>[00:14:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=868)   the context of, that was pre-Reformation, so within the context of Catholicism basically. 
+<br>[00:14:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=877)   That's a whole other way of working. 
+<br>[00:14:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=886)   The approaches are, it's nice because the approaches contrast. 
+<br>[00:14:50](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=890)   So each person can find one or a combination of these that they can relate to. 
+<br>[00:15:00](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=900)   So there's a wide range of ways that you can go about. 
+<br>[00:15:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=909)   And personally, some people are sort of mono-spiritual, they do best with just one approach. 
+<br>[00:15:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=919)   But I find that a lot of people are bi or multi. 
+<br>[00:15:24](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=924)   I certainly am. 
+<br>[00:15:26](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=926)   All those approaches to me seem like one approach. 
+<br>[00:15:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=932)   I would say that the closest thing within what I do to the self-inquiry way of working 
+<br>[00:15:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=942)   is just not gone. 
+<br>[00:15:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=946)   Can you see why? 
+<br>[00:15:47](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=947)   Can you see the parallelism? 
+<br>[00:15:53](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=953)   What's the question that self-inquiry asks? 
+<br>[00:15:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=958)   Where does it come from? 
+<br>[00:16:01](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=961)   What's the question that just not gone answers? 
+<br>[00:16:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=969)   It answers the question where does it go to? 
+<br>[00:16:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=972)   Because you're developing an appreciation for where things go to when they disappear. 
+<br>[00:16:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=980)   Now I know initially, so gone is defined very, very carefully within my system. 
+<br>[00:16:31](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=991)   All or part of something abruptly subsides and you notice it. 
+<br>[00:16:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=998)   That's the definition of gone. 
+<br>[00:16:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=999)   And you might wonder, why set up such a weird definition? 
+<br>[00:16:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1005)   Why language it that way? 
+<br>[00:16:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1009)   Where something goes to when it disappears is the same place it comes from. 
+<br>[00:17:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1026)   Where A goes to when it vanishes is where B comes from in the next instant when it manifests. 
+<br>[00:17:15](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1035)   So an inquiry method, you're sort of, okay, A has arisen, where did it come from? 
+<br>[00:17:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1045)   You're trying to sort of look back to the source of the stream. 
+<br>[00:17:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1052)   Turn the light back on itself. 
+<br>[00:17:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1054)   Turn consciousness back on itself. 
+<br>[00:17:36](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1056)   Or a very common paradigm, be conscious of consciousness. 
+<br>[00:17:44](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1064)   So the gone is A just disappeared. 
+<br>[00:17:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1071)   And if you briefly look in that direction, you're going to see that that's where B is 
+<br>[00:17:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1078)   going to pop out of. 
+<br>[00:18:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1083)   And what is it? 
+<br>[00:18:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1086)   Well, it's emptiness. 
+<br>[00:18:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1092)   That's the tranquil side of the process. 
+<br>[00:18:21](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1101)   So that's one side of emptiness. 
+<br>[00:18:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1108)   And then the dynamic side of the process is how emptiness breaks apart. 
+<br>[00:18:36](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1116)   It happens to everyone hundreds of thousands of times a day. 
+<br>[00:18:44](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1124)   It's so subtle, we just don't notice it by and large. 
+<br>[00:18:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1131)   But the nothing which is not extended in time and space, it breaks apart. 
+<br>[00:19:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1146)   And that happens with a kind of bouncy spontaneity. 
+<br>[00:19:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1153)   Just happens. 
+<br>[00:19:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1157)   And there's a sense of space effortlessly spreading. 
+<br>[00:19:24](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1164)   And at the same time, there's a sense of space effortlessly collapsing. 
+<br>[00:19:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1170)   In terms of traditional Theravada formulations, they talk about Udayabhaya or rising passing. 
+<br>[00:19:40](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1180)   At some point, your awareness is dominated by this cyclic sense of there's just rising 
+<br>[00:19:50](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1190)   and passing. 
+<br>[00:19:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1191)   And you're real detached from the content. 
+<br>[00:19:56](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1196)   It's just risings, passings, risings, passing. 
+<br>[00:19:59](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1199)   Some of it's pleasant, some of it's unpleasant, some of it makes sense, some of it doesn't 
+<br>[00:20:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1203)   make sense. 
+<br>[00:20:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1205)   But you have a sense that you're in contact with some primordial ordering principle that 
+<br>[00:20:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1213)   is a pre-human order. 
+<br>[00:20:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1217)   The order of nature. 
+<br>[00:20:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1220)   Human order is my body's comfortable and my mind's got answers. 
+<br>[00:20:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1225)   This pre-human order is what proceeds? 
+<br>[00:20:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1232)   Pre-energy entropy, maybe. 
+<br>[00:20:35](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1235)   That's my guess. 
+<br>[00:20:40](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1240)   That's what causes things to pratityasamutpadati, to fall up into existence. 
+<br>[00:20:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1251)   So a stage comes and typically you pass through this stage 10,000 times in a lifetime, but 
+<br>[00:21:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1266)   it just becomes clearer and clearer and clearer. 
+<br>[00:21:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1269)   With each new challenge level, you sort of have to go through the same thing again. 
+<br>[00:21:15](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1275)   That's one way to look at progress. 
+<br>[00:21:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1277)   There's a lot of different ways to map progress. 
+<br>[00:21:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1279)   But one is, okay, can you be in an arising-passing situation with this level of pain in your 
+<br>[00:21:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1288)   leg? 
+<br>[00:21:29](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1289)   Okay, well how about the next level of pain in your leg? 
+<br>[00:21:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1290)   Well, how about ache in your heart? 
+<br>[00:21:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1292)   Well, how about, how about, how about, how about, how about? 
+<br>[00:21:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1297)   When you reach the point where it doesn't matter how big or how complex or what the 
+<br>[00:21:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1302)   content is, but you can instantly be in an arising-passing situation, then you're doing 
+<br>[00:21:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1311)   pretty good. 
+<br>[00:21:53](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1313)   However, after the arising-passing thing, or on a continuum in a sense with that, is 
+<br>[00:22:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1325)   a sense of passing as it's arising. 
+<br>[00:22:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1329)   No sooner is it arising, but it's already passing. 
+<br>[00:22:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1333)   This is described in the classic Visuddhimagga, the path of purification, written by Buddhaghosa. 
+<br>[00:22:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1340)   It's also described by the Anglican poet T.S. 
+<br>[00:22:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1345)   Eliot, in my beginning is my end. 
+<br>[00:22:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1350)   That's how one of his lines opened. 
+<br>[00:22:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1353)   My beginning is my end. 
+<br>[00:22:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1354)   It's like already dying as soon as it's born. 
+<br>[00:22:40](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1360)   That is the, that's taking a temporal slice. 
+<br>[00:22:45](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1365)   As soon as it's arising, it's already passing. 
+<br>[00:22:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1369)   But spatially, that means as soon as it's spreading, it's already collapsing. 
+<br>[00:22:56](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1376)   Because remember, sensory events occupy time-space volumes. 
+<br>[00:23:02](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1382)   They last for a period of time, and they have width, depth, and height. 
+<br>[00:23:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1389)   Check it out. 
+<br>[00:23:10](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1390)   We did it in the group process. 
+<br>[00:23:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1393)   Does your C-ear feel not have width, depth, and height? 
+<br>[00:23:16](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1396)   It does. 
+<br>[00:23:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1397)   So as soon as it's spreading in terms of width, depth, and height, it's already collapsing 
+<br>[00:23:24](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1404)   along all three of those dimensions. 
+<br>[00:23:29](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1409)   So that's sort of the extreme version of arising-passing, is like passing as it's arising, spreading 
+<br>[00:23:41](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1421)   effortlessly as it's collapsing effortlessly. 
+<br>[00:23:50](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1430)   And in the folds of that vibrant dance of space are born the inner and outer C-ear feel 
+<br>[00:24:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1444)   that create the surrounding scene experience, and the I-have-a-self looking out at the surrounding 
+<br>[00:24:15](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1455)   scene experience. 
+<br>[00:24:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1459)   There's a metaphor from the Vijñānavāda school based on a snail. 
+<br>[00:24:31](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1471)   The snail's eyes, they belong to the same snail, but they come out on these two different 
+<br>[00:24:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1482)   stalks and then they can actually face each other. 
+<br>[00:24:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1489)   Consciousness comes from one formless source, and it's visual-auditory-somatic, but half 
+<br>[00:24:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1498)   of it seems out and the other half seems in, but it's really just consciousness looking 
+<br>[00:25:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1504)   at consciousness. 
+<br>[00:25:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1506)   So those sensory experiences arise in the vibrating folds in between this effortless 
+<br>[00:25:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1522)   spread and collapse of space. 
+<br>[00:25:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1525)   So that sense of space effortlessly spreading and collapsing, that's the dynamic side 
+<br>[00:25:35](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1535)   of emptiness. 
+<br>[00:25:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1539)   And then at some point that process sort of comes to an end, expansion and contraction 
+<br>[00:25:50](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1550)   cancel out, there's a flat line, but that's not the right metaphor. 
+<br>[00:25:56](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1556)   It all collapses back down to the next gone. 
+<br>[00:26:07](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1567)   So sometimes people like to talk about non-dual. 
+<br>[00:26:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1572)   I mentioned that term a few minutes ago, advaita, non-dual. 
+<br>[00:26:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1577)   So non-dual is another way to say one, or it's another way to say healing a wound, healing 
+<br>[00:26:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1593)   an alienation, healing a cleft that separates. 
+<br>[00:26:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1602)   So there's a lot of healings that have to take place. 
+<br>[00:26:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1611)   One is the seeming separation of inside and outside. 
+<br>[00:26:56](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1616)   If you were listening carefully to what I said, you should have an idea of how that 
+<br>[00:27:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1624)   duality can be transcended. 
+<br>[00:27:08](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1628)   And to transcend the duality of inside and outside, that's no small thing. 
+<br>[00:27:16](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1636)   What are some of the ways? 
+<br>[00:27:17](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1637)   Well, I actually mentioned a few of them. 
+<br>[00:27:21](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1641)   One is you can allow out to expand while in contracts. 
+<br>[00:27:29](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1649)   In other words, the see out, hear out, feel out of the surrounding scene, you pour all 
+<br>[00:27:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1654)   your attention on that. 
+<br>[00:27:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1657)   So much so that the see and hear and feel in of the reactive self contracts to nothing. 
+<br>[00:27:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1666)   And then your identity just goes out and inhabits what was formerly other. 
+<br>[00:27:52](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1672)   That's one way to go about it. 
+<br>[00:27:54](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1674)   Another way to go about it is the outer scene arises and there's a reactive self. 
+<br>[00:28:03](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1683)   It also arises. 
+<br>[00:28:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1685)   However, there's so much habitual concentration, clarity and equanimity in those circuits that 
+<br>[00:28:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1692)   both the outer scene and the inner self arise as a wave form. 
+<br>[00:28:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1702)   And so the two waves completely interpenetrate. 
+<br>[00:28:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1710)   And there is a oneness of inside and outside as a kind of unified dance of energy. 
+<br>[00:28:41](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1721)   That's another way that you can have a you can break down the duality between inside 
+<br>[00:28:49](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1729)   and outside. 
+<br>[00:28:51](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1731)   One of the major paradigms of enlightenment in world mysticism is the oneness. 
+<br>[00:29:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1745)   In Taoist terms, it tends to be oneness of inside and outside. 
+<br>[00:29:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1749)   In theistic religions, it tends to be oneness of the soul with God. 
+<br>[00:29:18](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1758)   How do you experience oneness of the soul with God? 
+<br>[00:29:24](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1764)   Well, how about experiencing yourself arising in between the two sides of God moment by 
+<br>[00:29:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1772)   moment? 
+<br>[00:29:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1773)   That would do the trick. 
+<br>[00:29:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1779)   Especially if it's your screwed up self. 
+<br>[00:29:43](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1783)   That would be really good. 
+<br>[00:29:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1788)   To experience your screwed up self being loved into existence by the dance of space moment 
+<br>[00:29:57](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1797)   by moment. 
+<br>[00:29:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1798)   It's pretty good. 
+<br>[00:30:00](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1800)   Might help you be a little more loving of your screwed up self. 
+<br>[00:30:11](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1811)   To achieve a sense of oneness of inside and outside is admirable. 
+<br>[00:30:21](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1821)   But I would say that it's not the deepest experience of non-dual. 
+<br>[00:30:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1832)   The deepest experience of non-dual comes about when the duality or separation between the 
+<br>[00:30:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1848)   one nothing and the ten trillion somethings, when that separation is healed. 
+<br>[00:31:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1866)   That's real non-dual awareness. 
+<br>[00:31:11](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1871)   What in the world is he talking about? 
+<br>[00:31:14](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1874)   So the one nothing that is the source, that's what gone points to. 
+<br>[00:31:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1882)   That's also what you see when you're successful in self-inquiry. 
+<br>[00:31:26](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1886)   When you see where you come from. 
+<br>[00:31:31](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1891)   See where you go to. 
+<br>[00:31:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1894)   That's the one nothing. 
+<br>[00:31:40](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1900)   Then there's the ten trillion somethings of self and world. 
+<br>[00:31:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1908)   Another way to put it is emptiness and form. 
+<br>[00:31:53](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1913)   So the Heart Sutra says, form is emptiness, emptiness is form. 
+<br>[00:32:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1924)   Now it's very interesting. 
+<br>[00:32:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1925)   They put it both ways. 
+<br>[00:32:08](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1928)   Form is emptiness, emptiness is form. 
+<br>[00:32:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1932)   That is the entire path viewed from one point of view. 
+<br>[00:32:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1939)   That's only one point of view, but that's the entire path right there. 
+<br>[00:32:24](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1944)   The first half of the path is form is emptiness. 
+<br>[00:32:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1948)   That's dissolution. 
+<br>[00:32:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1950)   That's loving and knowing form to death. 
+<br>[00:32:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1958)   Within the Jewish meditation tradition it's called B'TUL HAYESH, the annihilation of the 
+<br>[00:32:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1966)   somethings. 
+<br>[00:32:50](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1970)   Don't be afraid of it. 
+<br>[00:32:52](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1972)   Don't be afraid to just sit there and totally let go of the ordinary ordering principle. 
+<br>[00:33:00](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1980)   The ordinary human ordering principle, which I reiterate, what did I say the human ordering 
+<br>[00:33:07](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1987)   principle is? 
+<br>[00:33:09](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1989)   Body is comfortable and mind has answers. 
+<br>[00:33:12](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1992)   Now I'm not saying that there's anything wrong with the normal human ordering principle. 
+<br>[00:33:18](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=1998)   In fact we're humans. 
+<br>[00:33:20](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2000)   Maybe that's what we need, but we also need a larger context, a pre-human ordering, the 
+<br>[00:33:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2008)   source of the human ordering, presumably. 
+<br>[00:33:34](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2014)   So don't be afraid to just let it all collapse into what seems to be chaos. 
+<br>[00:33:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2026)   Because what's interesting is what seems to be random is in fact what causes order to 
+<br>[00:33:57](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2037)   arise, entropy. 
+<br>[00:34:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2045)   So you sort of surrender to that and you let the somethingness just be torn apart. 
+<br>[00:34:22](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2062)   And you throw caution to the wind and for a period of time abandon totally the ordinary 
+<br>[00:34:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2072)   ordering principle. 
+<br>[00:34:35](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2075)   Doesn't matter if the body's comfortable or not. 
+<br>[00:34:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2077)   Doesn't matter if my mind is confused or not. 
+<br>[00:34:44](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2084)   Annihilation of the somethingness. 
+<br>[00:34:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2088)   And what will happen is it'll all become rising, passing, arising, passing, and then it will 
+<br>[00:34:52](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2092)   just be passing, passing. 
+<br>[00:35:00](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2100)   And then you will begin to see how that nothing molds each moment. 
+<br>[00:35:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2119)   And each moment is one of the ten trillion somethings that I'm alluding to. 
+<br>[00:35:25](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2125)   The ten trillion somethings of self and world. 
+<br>[00:35:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2128)   This is happening here. 
+<br>[00:35:30](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2130)   I'm experiencing this here. 
+<br>[00:35:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2132)   My mind's doing this. 
+<br>[00:35:33](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2133)   My body's doing this. 
+<br>[00:35:35](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2135)   They're doing that. 
+<br>[00:35:36](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2136)   We're over here. 
+<br>[00:35:38](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2138)   It's ten trillion somethings that constitute a life. 
+<br>[00:35:48](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2148)   How can we connect, have an unbroken, a non-dual link between the one nothing over here and 
+<br>[00:36:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2164)   the ten trillion somethings? 
+<br>[00:36:08](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2168)   Well, this is about the deepest principle that I am personally aware of in practice. 
+<br>[00:36:19](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2179)   What the umbilical cord, the thing that allows for a smooth and continuous transform from 
+<br>[00:36:29](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2189)   the one nothing to one of the ten trillion somethings back to the one nothing. 
+<br>[00:36:37](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2197)   What connects is the two doings. 
+<br>[00:36:42](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2202)   The two doings are the two sides of emptiness. 
+<br>[00:36:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2206)   Space effortlessly spreading and collapsing. 
+<br>[00:36:52](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2212)   They are the two sides of zero. 
+<br>[00:36:57](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2217)   And in the folds is, arises one of the ten trillion somethings. 
+<br>[00:37:06](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2226)   And whatever it is, a thought, a body sensation, a sight, a sound, whatever it is, it's always 
+<br>[00:37:16](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2236)   embraced from without and within by the two doings. 
+<br>[00:37:23](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2243)   So it, the ordinary experience, is touched by the two doings. 
+<br>[00:37:32](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2252)   But the two doings are in fact the two sides of the one nothing. 
+<br>[00:37:41](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2261)   And that allows you to have an experience thousands and thousands of times a day of 
+<br>[00:37:54](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2274)   this miraculous arising of something from nothing. 
+<br>[00:38:04](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2284)   Form is emptiness. 
+<br>[00:38:07](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2287)   That's the path of dissolution. 
+<br>[00:38:11](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2291)   Emptiness is form. 
+<br>[00:38:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2293)   If you are heroic enough to do that, you get to live the rest of your life seeing each 
+<br>[00:38:28](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2308)   sensory event as this kind of miracle that arises sitting on the totality of the universe. 
+<br>[00:38:39](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2319)   It seems like you're participating in that process. 
+<br>[00:38:46](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2326)   And in the Hebrew that's called Bri'ah Yesh Me'ayim. 
+<br>[00:38:54](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2334)   The continuing, continuous creation of yesh, things, me, from, ayim, the divine nothingness. 
+<br>[00:39:05](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2345)   That's a spontaneous bouncy process. 
+<br>[00:39:13](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2353)   And because of that, you look upon each thing as sort of sharing your womb. 
+<br>[00:39:29](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2369)   And in the Jewish tradition, at least the Jewish mystical tradition, it is said that 
+<br>[00:39:43](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2383)   through that participation comes about something called tikkun olam, the mending of the world. 
+<br>[00:39:58](https://www.youtube.com/watch?v=zL-oEF2lQRI&t=2398)   Happy eid! 
+<br>

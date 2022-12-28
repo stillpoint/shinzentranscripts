@@ -1,0 +1,201 @@
+---
+title: "MINDFULNESS with SICKNESS ~ Shinzen Young"
+
+---
+<br>[00:00:00](https://www.youtube.com/watch?v=6vhrTErrZD8&t=0)   So, I'm aware that some people are dealing with the challenge of being sick and so forth. 
+<br>[00:00:17](https://www.youtube.com/watch?v=6vhrTErrZD8&t=17)   Well, it's interesting, in a Zen temple, being sick, they have all this special vocabulary 
+<br>[00:00:26](https://www.youtube.com/watch?v=6vhrTErrZD8&t=26)   for everything. Ordinary things all have their own sort of like special things. So, they 
+<br>[00:00:34](https://www.youtube.com/watch?v=6vhrTErrZD8&t=34)   don't say byouki, which means the normal Japanese word for being sick. They have this expression 
+<br>[00:00:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=41)   byousou, which means the symptoms of illness or the appearance of illness. So, instead 
+<br>[00:00:58](https://www.youtube.com/watch?v=6vhrTErrZD8&t=58)   of saying this monk is sick, they say this monk is showing the form of sickness, like 
+<br>[00:01:09](https://www.youtube.com/watch?v=6vhrTErrZD8&t=69)   the appearance of sickness, byousou, meaning of course there's a little bit of an implication 
+<br>[00:01:18](https://www.youtube.com/watch?v=6vhrTErrZD8&t=78)   that there is a sensory experience of being sick. And then that is a form, a manifestation. 
+<br>[00:01:30](https://www.youtube.com/watch?v=6vhrTErrZD8&t=90)   The implication of course being that eventually you want to be able to escape into the sensory 
+<br>[00:01:40](https://www.youtube.com/watch?v=6vhrTErrZD8&t=100)   event of being sick, the byousou. And the Japanese, there's another word in Japanese 
+<br>[00:01:50](https://www.youtube.com/watch?v=6vhrTErrZD8&t=110)   that there's just no English equivalent, which is narikiru. Narikiru means you deal with 
+<br>[00:02:01](https://www.youtube.com/watch?v=6vhrTErrZD8&t=121)   it by totally becoming it. You so become it that everything else is cut off. Naru means 
+<br>[00:02:12](https://www.youtube.com/watch?v=6vhrTErrZD8&t=132)   you become. Kiru means you cut. So, you so become it that everything else is cut off. 
+<br>[00:02:20](https://www.youtube.com/watch?v=6vhrTErrZD8&t=140)   You utterly achieve oneness with it. Or a more idiomatic expression in English might 
+<br>[00:02:31](https://www.youtube.com/watch?v=6vhrTErrZD8&t=151)   be complete commitment. There's a complete commitment to just experiencing being sick. 
+<br>[00:02:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=161)   Now the good thing is, the lucky thing for us, is if you are sick, I'm going to encourage 
+<br>[00:02:51](https://www.youtube.com/watch?v=6vhrTErrZD8&t=171)   you as much as you want to sleep and rest and take breaks and so forth. But in the Zen 
+<br>[00:03:05](https://www.youtube.com/watch?v=6vhrTErrZD8&t=185)   temple you're not allowed to do that, no matter what. You have to follow the schedule no matter 
+<br>[00:03:12](https://www.youtube.com/watch?v=6vhrTErrZD8&t=192)   how sick you are. And that is really misery. I didn't get sick much, but every once in 
+<br>[00:03:22](https://www.youtube.com/watch?v=6vhrTErrZD8&t=202)   a while. We got inoculated against Japan encephalitis because you get bit by mosquitoes, right? 
+<br>[00:03:34](https://www.youtube.com/watch?v=6vhrTErrZD8&t=214)   And oh man, I had a reaction to the shot. But it's like there's no mercy. You just have 
+<br>[00:03:47](https://www.youtube.com/watch?v=6vhrTErrZD8&t=227)   to keep doing the schedule, right? No matter how you feel. I'm remembering now. I'd forgotten. 
+<br>[00:03:57](https://www.youtube.com/watch?v=6vhrTErrZD8&t=237)   That was very unpleasant. It was summer too. It was like hot. Of course, a lot better than 
+<br>[00:04:07](https://www.youtube.com/watch?v=6vhrTErrZD8&t=247)   getting Japan encephalitis. But anyway. So yeah, there's actually a long tradition of 
+<br>[00:04:20](https://www.youtube.com/watch?v=6vhrTErrZD8&t=260)   using the sickness for your practice. But here, you know, you have the luxury that you 
+<br>[00:04:26](https://www.youtube.com/watch?v=6vhrTErrZD8&t=266)   can take it easy if you need to. But even when you're taking it easy, try to make you 
+<br>[00:04:33](https://www.youtube.com/watch?v=6vhrTErrZD8&t=273)   not begrudge the fact that, oh, I got sick now, I can't have a retreat. That is the retreat. 
+<br>[00:04:43](https://www.youtube.com/watch?v=6vhrTErrZD8&t=283)   And in daily life, injury, illness, visiting the hospital. Whenever I work with students 
+<br>[00:04:49](https://www.youtube.com/watch?v=6vhrTErrZD8&t=289)   that they're calling me from the hospital, I'm having this operation or that thing going 
+<br>[00:04:53](https://www.youtube.com/watch?v=6vhrTErrZD8&t=293)   on, I say, I always have a stock phrase. I say, okay, you're having a non-consensual 
+<br>[00:05:00](https://www.youtube.com/watch?v=6vhrTErrZD8&t=300)   retreat. You're being forced into a situation where there's nothing to do but explore the 
+<br>[00:05:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=308)   prospect of happiness independent of conditions. Because this condition is going to go on for 
+<br>[00:05:13](https://www.youtube.com/watch?v=6vhrTErrZD8&t=313)   a little while. Before there was Chan, or as the Japanese call it, Zen, in China, there 
+<br>[00:05:25](https://www.youtube.com/watch?v=6vhrTErrZD8&t=325)   was Tantai. That was the first meditating school of Chinese Buddhism. And that was actually 
+<br>[00:05:34](https://www.youtube.com/watch?v=6vhrTErrZD8&t=334)   at a relatively early period before the Tang, during the Sui dynasty is when that started. 
+<br>[00:05:43](https://www.youtube.com/watch?v=6vhrTErrZD8&t=343)   And then it gained momentum in the early Tang. They came up with a very interesting way to 
+<br>[00:05:56](https://www.youtube.com/watch?v=6vhrTErrZD8&t=356)   meditate. The lineage did not survive, though, the lineage of practice, although the texts 
+<br>[00:06:04](https://www.youtube.com/watch?v=6vhrTErrZD8&t=364)   have survived. Other lineages like Chan or Zen and Pure Land and so forth survived in 
+<br>[00:06:16](https://www.youtube.com/watch?v=6vhrTErrZD8&t=376)   China, but Tantai didn't, although it has been preserved in Japan. It's called Tendai 
+<br>[00:06:25](https://www.youtube.com/watch?v=6vhrTErrZD8&t=385)   in Japanese. The reason I'm mentioning it is that the first meditation manual that I'm 
+<br>[00:06:33](https://www.youtube.com/watch?v=6vhrTErrZD8&t=393)   aware of in the Chinese language was written by the Tantai Dasher, the master who created 
+<br>[00:06:48](https://www.youtube.com/watch?v=6vhrTErrZD8&t=408)   the Tantai system. It's in 10 chapters and it's called the Moha Jurguan, which means 
+<br>[00:06:58](https://www.youtube.com/watch?v=6vhrTErrZD8&t=418)  ... Moha is actually a Sanskrit word incorporated into Chinese. It's Maha, which means big, 
+<br>[00:07:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=428)   right? Or great. Jur means in Mandarin means to stop. And Guan means to see or observe. 
+<br>[00:07:18](https://www.youtube.com/watch?v=6vhrTErrZD8&t=438)   So the great stop and see. So stop, it translates Shamata. And see or Guan translates Vipashana. 
+<br>[00:07:33](https://www.youtube.com/watch?v=6vhrTErrZD8&t=453)   So before there was the word Zuochan in Mandarin, which is Zazen in Japanese, that's the normal 
+<br>[00:07:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=461)   word in Chinese and Japanese for meditate. But before that word existed in East Asia, 
+<br>[00:07:49](https://www.youtube.com/watch?v=6vhrTErrZD8&t=469)   the word for meditate was Jurguan, which means to do Shamata Vipashana, to do calming, concentrating, 
+<br>[00:08:01](https://www.youtube.com/watch?v=6vhrTErrZD8&t=481)   but also observing insight mixed together. In any event, before I practiced meditation, 
+<br>[00:08:15](https://www.youtube.com/watch?v=6vhrTErrZD8&t=495)   I was an academic studying it, a scholar of it. And I was fortunate because before I even 
+<br>[00:08:25](https://www.youtube.com/watch?v=6vhrTErrZD8&t=505)   got interested in Buddhism, I was literate in both Chinese and Japanese. I could read 
+<br>[00:08:32](https://www.youtube.com/watch?v=6vhrTErrZD8&t=512)   those Asian languages fluently. So all my early study of Buddhism was done actually 
+<br>[00:08:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=521)   by reading books in Chinese and Japanese about Buddhism. And one of the books that I read 
+<br>[00:08:49](https://www.youtube.com/watch?v=6vhrTErrZD8&t=529)   was this manual by Tiantai. It's something that was written in the 7th century AD in 
+<br>[00:08:59](https://www.youtube.com/watch?v=6vhrTErrZD8&t=539)   China. So it's like over a millennium ago and half a world away. But you could sort 
+<br>[00:09:13](https://www.youtube.com/watch?v=6vhrTErrZD8&t=553)   of have an intimacy with the person that wrote this by reading what they had to say and reading 
+<br>[00:09:20](https://www.youtube.com/watch?v=6vhrTErrZD8&t=560)   about their struggles. The reason I'm mentioning this is 10 chapters, and just like I attempt 
+<br>[00:09:28](https://www.youtube.com/watch?v=6vhrTErrZD8&t=568)   to do, he very systematically lays out the nuts and bolts of practice and relates it 
+<br>[00:09:36](https://www.youtube.com/watch?v=6vhrTErrZD8&t=576)   to various scriptures, particularly the Lotus Sutra was central to this particular school. 
+<br>[00:09:50](https://www.youtube.com/watch?v=6vhrTErrZD8&t=590)   So one of those chapters, it's an entire chapter devoted to just the whys and wherefores of 
+<br>[00:10:04](https://www.youtube.com/watch?v=6vhrTErrZD8&t=604)   practicing when you're sick. It was a long time ago that I read it. I don't remember 
+<br>[00:10:14](https://www.youtube.com/watch?v=6vhrTErrZD8&t=614)   the details, but I remember thinking, oh, Tiantai must have himself had a lot of health 
+<br>[00:10:25](https://www.youtube.com/watch?v=6vhrTErrZD8&t=625)   challenges and it must have been very difficult for him to achieve what he achieved. And that's 
+<br>[00:10:34](https://www.youtube.com/watch?v=6vhrTErrZD8&t=634)   probably what's motivating. This is probably based on his own experience. So it's like 
+<br>[00:10:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=641)   a whole section, it's like a tenth of the book. The first meditation manual in East 
+<br>[00:10:48](https://www.youtube.com/watch?v=6vhrTErrZD8&t=648)   Asia is about not begrudging the fact that you're sick. But okay, you do this, you do 
+<br>[00:10:57](https://www.youtube.com/watch?v=6vhrTErrZD8&t=657)   this, you do this, you do this, here's how you can treat illnesses. I seem to remember 
+<br>[00:11:03](https://www.youtube.com/watch?v=6vhrTErrZD8&t=663)   now there was some Chinese medicine in there. I also seem to remember that there was some 
+<br>[00:11:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=668)   Taoist magic in there to sort of make certain kinds of spirits cause certain kinds of illnesses 
+<br>[00:11:16](https://www.youtube.com/watch?v=6vhrTErrZD8&t=676)   and you can militate against them with this or that. I seem to remember that, but mostly 
+<br>[00:11:21](https://www.youtube.com/watch?v=6vhrTErrZD8&t=681)   what I remember is the notion, okay, you're going to get sick. That's just an opportunity 
+<br>[00:11:34](https://www.youtube.com/watch?v=6vhrTErrZD8&t=694)   for practice and don't begrudge the fact and just don't lose a beat. Use it for your practice. 
+<br>[00:11:42](https://www.youtube.com/watch?v=6vhrTErrZD8&t=702)   So you know how you can do that within the context of what we're doing, you apply a technique. 
+<br>[00:11:49](https://www.youtube.com/watch?v=6vhrTErrZD8&t=709)   Basically if you have a sensory challenge, there are two fundamental strategies and you 
+<br>[00:11:58](https://www.youtube.com/watch?v=6vhrTErrZD8&t=718)   can, there's plan A, plan B and you can alternate plan A and plan B. Plan A is turn towards 
+<br>[00:12:06](https://www.youtube.com/watch?v=6vhrTErrZD8&t=726)   it, untangle, unblock, not acute, totally become it. How do you go beyond hot or cold? 
+<br>[00:12:16](https://www.youtube.com/watch?v=6vhrTErrZD8&t=736)   When it's hot, you boil to death. When it's cold, you freeze to death. You just become 
+<br>[00:12:21](https://www.youtube.com/watch?v=6vhrTErrZD8&t=741)   it. So that's plan A. I call that strategy turn towards. Now when you take a turn towards 
+<br>[00:12:34](https://www.youtube.com/watch?v=6vhrTErrZD8&t=754)   strategy, you need concentration, clarity and equanimity to do that successfully. The 
+<br>[00:12:43](https://www.youtube.com/watch?v=6vhrTErrZD8&t=763)   flip side of that is by attempting to focus on it in a systematic way, you will develop 
+<br>[00:12:54](https://www.youtube.com/watch?v=6vhrTErrZD8&t=774)   concentration, clarity and equanimity. So it's an exercise in those skills. So you are 
+<br>[00:13:01](https://www.youtube.com/watch?v=6vhrTErrZD8&t=781)   developing those skills, but now you're also applying those skills to deconstructing or 
+<br>[00:13:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=788)   having a complete experience of whatever the sensory challenge is. Plan B is turn away. 
+<br>[00:13:21](https://www.youtube.com/watch?v=6vhrTErrZD8&t=801)   So turn away would be in terms of possible focus range. Well, you could, let's say that 
+<br>[00:13:33](https://www.youtube.com/watch?v=6vhrTErrZD8&t=813)   the challenge is the physical discomfort of an illness. So what is the sensory gestalt 
+<br>[00:13:44](https://www.youtube.com/watch?v=6vhrTErrZD8&t=824)   for physical discomfort? We talked about it in the group process this morning. There's 
+<br>[00:13:49](https://www.youtube.com/watch?v=6vhrTErrZD8&t=829)   the uncomfortable physical sensation and then there's the reactivity of the inner system 
+<br>[00:13:56](https://www.youtube.com/watch?v=6vhrTErrZD8&t=836)   to that. The uncomfortable physical sensation will often resolve into one or more local 
+<br>[00:14:05](https://www.youtube.com/watch?v=6vhrTErrZD8&t=845)   intensities and then a more subtle global spread. Subtle is significant. So you've got 
+<br>[00:14:18](https://www.youtube.com/watch?v=6vhrTErrZD8&t=858)   local intensity, global spread in feel out, the physicality of the body, and then you 
+<br>[00:14:25](https://www.youtube.com/watch?v=6vhrTErrZD8&t=865)   have the inner system, mental image, mental talk and body emotion reacting possibly to 
+<br>[00:14:33](https://www.youtube.com/watch?v=6vhrTErrZD8&t=873)   that or being impacted by that. So that's five sensory elements, local physical discomfort, 
+<br>[00:14:46](https://www.youtube.com/watch?v=6vhrTErrZD8&t=886)   global physical discomfort, mental image, mental talk and body emotion. So you can work 
+<br>[00:14:53](https://www.youtube.com/watch?v=6vhrTErrZD8&t=893)   with the parts, you can work with the whole, untangle, unblock. That would be to focus 
+<br>[00:15:02](https://www.youtube.com/watch?v=6vhrTErrZD8&t=902)   a turn towards strategy. What's a turn away strategy? Well, anything that's not that. 
+<br>[00:15:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=908)   So you could anchor insights and sounds. Sometimes when I work with people who have severe chronic 
+<br>[00:15:17](https://www.youtube.com/watch?v=6vhrTErrZD8&t=917)   pain, acute chronic pain, the only thing they can do is they just have to get away from 
+<br>[00:15:24](https://www.youtube.com/watch?v=6vhrTErrZD8&t=924)   the mind and the body because the mind and body are just untenable. The only thing they 
+<br>[00:15:30](https://www.youtube.com/watch?v=6vhrTErrZD8&t=930)   can focus on is sights and sounds. So anchor out or maybe you can access restful states. 
+<br>[00:15:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=941)   See rest, hear rest, feel rest, or maybe you can nurture positive image, talk, body, emotion. 
+<br>[00:15:50](https://www.youtube.com/watch?v=6vhrTErrZD8&t=950)   So an alternative strategy, plan B, is turn away. Now there's a tendency to think that 
+<br>[00:16:03](https://www.youtube.com/watch?v=6vhrTErrZD8&t=963)   if I turn away that's denial and suppression. Unfortunately there's also a tendency to think 
+<br>[00:16:10](https://www.youtube.com/watch?v=6vhrTErrZD8&t=970)   if I turn towards that's just going to make it worse and reinforce it. I think you can 
+<br>[00:16:16](https://www.youtube.com/watch?v=6vhrTErrZD8&t=976)   see that if you buy into those two beliefs you literally have no place to turn. You've 
+<br>[00:16:22](https://www.youtube.com/watch?v=6vhrTErrZD8&t=982)   set yourself up for abject suffering. So what I would like to encourage people is to consider 
+<br>[00:16:29](https://www.youtube.com/watch?v=6vhrTErrZD8&t=989)   that in fact both of those options are viable strategies. Why? Because the turn away also 
+<br>[00:16:39](https://www.youtube.com/watch?v=6vhrTErrZD8&t=999)   entails concentration, clarity, and equanimity. Your ability to do it depends on those skills. 
+<br>[00:16:48](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1008)   On the other hand, the attempt to do it builds those skills. So you're developing and applying 
+<br>[00:16:54](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1014)   the same skill set. Concentration power, let's say you're anchoring in sight and sound because 
+<br>[00:17:00](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1020)   the mind and body are untenable. So you get pulled away from sights and sounds so you 
+<br>[00:17:06](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1026)   keep coming back. That's concentration power. Sensory clarity, well the sights and sounds 
+<br>[00:17:11](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1031)   might be subtle relative to the intensities that are going on in mind-body space. Well 
+<br>[00:17:18](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1038)   that ability to detect subtle things, that's a sensory clarity. Or specifically when you're 
+<br>[00:17:25](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1045)   working on restful states, see rest, hear rest, feel rest, typically the restful states 
+<br>[00:17:30](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1050)   are quite subtle relative to the activations. But you're developing sensory clarity by the 
+<br>[00:17:37](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1057)   ability to detect. Remember sensory clarity has two, depending on how you want to look 
+<br>[00:17:45](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1065)   at it, three sub-dimensions. Resolution power, the ability to distinguish. Sensitivity, the 
+<br>[00:17:57](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1077)   ability to detect subtle signals. Those are different things. They both come under clarity. 
+<br>[00:18:03](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1083)   If you want to make it more complicated but also more traditional, you can say there's 
+<br>[00:18:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1088)   another aspect to clarity, what the Seyedahs call penetration. So, okay, one aspect of 
+<br>[00:18:18](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1098)   clarity is detection. So the ability to detect subtle things may be involved, probably will 
+<br>[00:18:26](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1106)   be involved in a turn away strategy. And how about equanimity? Well, your willingness to 
+<br>[00:18:32](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1112)   allow the sensory challenge to expand and contract in the background while your attention 
+<br>[00:18:38](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1118)   is focused in the foreground on something else, that's background equanimity. So, like 
+<br>[00:18:43](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1123)   I say, I like to divide the skills not only into dimensions but sub-dimensions. So the 
+<br>[00:18:52](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1132)   ability to open up and turn towards, that's one kind of equanimity, foreground equanimity. 
+<br>[00:19:01](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1141)   The ability to turn away but at the same time open up in the background, that's actually 
+<br>[00:19:09](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1149)   a related but independent skill that I call background equanimity. And I encourage people 
+<br>[00:19:14](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1154)   to develop both of those equanimity skills. Now we've talked about concentration, the 
+<br>[00:19:20](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1160)   ability to hold something small, but also the ability to hold something large, the ability 
+<br>[00:19:27](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1167)   to hold one thing for a long period of time, or the ability to taste momentary concentration 
+<br>[00:19:32](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1172)   on a variety of things. These are dimensions within the clarity skill. So I'm going to 
+<br>[00:19:40](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1180)   say that if you elect a turn away strategy, that you are developing and applying the core 
+<br>[00:19:49](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1189)   skill set. If you elect a turn towards strategy, you're doing exactly the same. So if you think 
+<br>[00:19:56](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1196)   about it this way, it's a win-win situation. Either strategy is legitimate. And what you 
+<br>[00:20:04](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1204)   want to avoid is the lose-lose situation, which is, I don't want to turn away from it 
+<br>[00:20:09](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1209)   because that's just denial and suppression. I don't want to turn towards it because that's 
+<br>[00:20:15](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1215)   going to just exacerbate it and reinforce it. So now you have nowhere to turn. So anyway, 
+<br>[00:20:23](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1223)   if you happen to have a sensory challenge of any sort in general, and specifically if 
+<br>[00:20:36](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1236)   you're struggling with an illness at a retreat or that kind of thing, these are some things 
+<br>[00:20:42](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1242)   you can keep in mind. And so when you're in the meditation hall, try to be aware of your 
+<br>[00:20:51](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1251)   breathing that may come about through sleepiness or through some discomfort that you're going 
+<br>[00:20:58](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1258)   through. Open your eyes, straighten your spine, etc., etc. Most of you know this story, but 
+<br>[00:21:08](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1268)   this is how I learned about that a lot of times you don't realize how disruptive you 
+<br>[00:21:17](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1277)   might be. So I'd been meditating for, I don't know, maybe a year or so, and I went off to 
+<br>[00:21:26](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1286)   this Soto Zen temple called Antaichi. And so this is one of these Soto Zen, so you meditate 
+<br>[00:21:33](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1293)   facing the wall. I was already a Shingon monk at the time, so that means that I was wearing 
+<br>[00:21:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1301)   robes. And underneath, so you have sort of these robes, but they're not very thick. And 
+<br>[00:21:53](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1313)   then underneath that you have a kimono. And it's a winter kimono, but kimono is not really 
+<br>[00:22:00](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1320)   designed for cold weather. Okay, it's great for the summer, the air just comes through, 
+<br>[00:22:05](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1325)   you know. But I was really, really cold. And I was sick. I got sick in the middle of the 
+<br>[00:22:16](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1336)   thing. And I was really, really miserable. And, you know, no heat in the zendo at all, 
+<br>[00:22:26](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1346)   right? And it's like winter. So I guess I didn't realize it, but I was like...all day. 
+<br>[00:22:46](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1366)   So like, the second day of the session, you're facing the wall, right? You can't see anything 
+<br>[00:22:53](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1373)   behind you. And I go to sit down and bang, someone punches me in the nose from the back 
+<br>[00:23:03](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1383)   with a Kleenex stuck to my nose. And I couldn't see who it was. I guess the only word that 
+<br>[00:23:23](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1403)   I can think of is Vesuvius of Rage. All day long. It just over and over again. How dare 
+<br>[00:23:41](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1421)   that motherfucker. I didn't know who the motherfucker was. It was someone, almost certainly a Japanese 
+<br>[00:23:59](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1439)   monk. So now I've got all that going on. And you can't do anything. You just have to face 
+<br>[00:24:12](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1452)   the wall and face yourself. I mean, I got the message, okay, you know, dude, you've 
+<br>[00:24:20](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1460)   been an asshole. You've been sniffing this whole time. So now I, okay, I won't sniff 
+<br>[00:24:26](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1466)   anymore. But oh my God, I was so angry and so uncomfortable. And there's just nothing 
+<br>[00:24:35](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1475)   you could do. It's Soto Zen, it's 50 minute sits, 10 minute walk, 50 minute sit, 10 minute 
+<br>[00:24:43](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1483)   walk. I think they did 14 hours of sitting each day, something like that. And you're 
+<br>[00:24:52](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1492)   facing the wall. No talks, no nothing. It was hardcore. It was shikantaza. It was like 
+<br>[00:25:00](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1500)   just sit. And there's nothing to do but just face that inner hell and deal with it. Which 
+<br>[00:25:12](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1512)   is sort of awful, but not nearly as awful as not dealing with it. Some of you have sweated 
+<br>[00:25:21](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1521)   with my friends Wolf and Lisa, the traditional Native American sweat lodge. So anyway, it's 
+<br>[00:25:30](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1530)   Lisa that does the really hot sweats. She's full blood Lakota Sioux. I don't know if that 
+<br>[00:25:36](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1536)   has anything to do with it. And we were in a sweat once and she was saying, I know this 
+<br>[00:25:45](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1545)   path is hard. I know this path is hard. I know this path is hard, but there's one thing 
+<br>[00:25:51](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1551)   harder than this path. Harder than doing this path is not doing this path. And it is so 
+<br>[00:25:59](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1559)   true. So, you know, I could have been the person that wasn't miserable and sick and 
+<br>[00:26:10](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1570)   beat up in Japan. I could have been not that person. That would have been so much harder. 
+<br>[00:26:18](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1578)   So much harder. I think I mentioned in the last retreat, maybe I didn't, but an acquaintance 
+<br>[00:26:28](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1588)   of mine wrote a book called 10% Happier, Dan Harris. He's on the nightline, right? And 
+<br>[00:26:42](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1602)   I think ABC, Good Morning America or something like that, right? He's like a talk hoe, but 
+<br>[00:26:46](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1606)   he's one of us. He famously had a panic attack on camera at some point in his career, which 
+<br>[00:26:57](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1617)   you can actually see it's on YouTube. It's like, we'll be there forever, right? And that 
+<br>[00:27:05](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1625)   was his wake up call that he had to, something was radically wrong with his life. And a major 
+<br>[00:27:13](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1633)   part of his recovery was to take on this practice, mindfulness practice. But because he's in 
+<br>[00:27:21](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1641)   the position of being a prominent television personality, it's sort of cool for us. So 
+<br>[00:27:30](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1650)   he wrote this book called 10% Happier. And he's got a whole program that goes with it. 
+<br>[00:27:38](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1658)   Actually he's partnering up with one of my facilitators, Jeff Warren from Canada. They're 
+<br>[00:27:44](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1664)   on tour now in the US, sort of bringing the message of mindfulness. It's so cool that 
+<br>[00:27:52](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1672)   we're that mainstream at this point. Anyway, the title of that book got me thinking about 
+<br>[00:28:01](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1681)   my own life. So, you know, 10% Happier. And I started to calculate in my mind, did like 
+<br>[00:28:09](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1689)   a thought experiment. Okay, at my current age, what would the picture be if I hadn't 
+<br>[00:28:21](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1701)   made that decision at the age of 25 to, by hook or crook, meditate every day of my life? 
+<br>[00:28:30](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1710)   What if I hadn't done that? What if I'd just been one of the million other things 
+<br>[00:28:40](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1720)   that I could have been as a non-meditator? So where would I be, given who I was at 25? 
+<br>[00:28:51](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1731)   Extrapolating, where would I be? And then where I know myself to be as the result of 
+<br>[00:28:59](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1739)   that decision. And objectively, I just, I had to say, it's not 10% happier, it's 
+<br>[00:29:11](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1751)   10 times happier. I mean, objectively, easily 10 times happier. Or put the other way, I 
+<br>[00:29:20](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1760)   would be one-tenth as happy, which actually would be like pretty miserable. So anyway, 
+<br>[00:29:29](https://www.youtube.com/watch?v=6vhrTErrZD8&t=1769)   I encourage you in that regard. 
+<br>
