@@ -1,0 +1,16 @@
+@media print {
+
+    .md-typeset table:not([class]) {
+        display: block;
+        border: none;
+    }
+        
+}
+
+@page {
+    size: a4 portrait;
+    margin: 25mm 10mm 25mm 10mm;
+    counter-increment: page;
+    font-family: "Roboto","Helvetica Neue",Helvetica,Arial,sans-serif;
+    white-space: pre;
+}
